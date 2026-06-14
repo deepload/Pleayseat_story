@@ -1,137 +1,177 @@
 # Chapitre 40 : Trouver le secret
 
-Quarante minutes.
+Vingt-neuf minutes.
 
-C'était le chiffre que le système m'avait tendu, et que j'avais tendu à la pièce, et que la pièce avait avalé comme on avale une pierre — lentement, à contrecœur, avec la certitude qu'elle resterait logée en vous jusqu'à la fin de vos jours. Quarante minutes avant que les portes du convoi ne se referment sous l'hôpital mort. Quarante minutes avant que quarante-sept enfants ne s'enfoncent dans la nuit sur une route que j'avais reconstituée au fil de deux semaines de veilles, et avant qu'une femme que j'aimais ne cesse d'avoir des raisons de rester en vie.
+C'est le chiffre que le système m'a tendu. Je l'ai répété à la pièce. La pièce l'a avalé comme une pierre.
 
-Et voici ce dont personne ne vous prévient, quand l'horloge devient la chose la plus bruyante au monde.
+Vingt-neuf minutes avant que les portes du convoi se referment sous l'hôpital mort. Vingt-neuf minutes avant que quarante-sept enfants partent dans la nuit, sur une route que j'avais reconstruite en sept nuits de veille. Sept nuits d'écran et de café froid. Vingt-neuf minutes avant qu'une femme que j'aimais n'ait plus de raison de tenir.
+
+Et voilà ce dont personne ne te prévient, quand l'horloge devient le seul bruit du monde.
 
 On ne peut pas encore bouger.
 
-Basti faisait son sac. Yuri était au téléphone, à voix basse et rapide, le mot « commandant » remontant puis sombrant dans l'obscurité comme la main d'un noyé. Le plan se réorganisait autour de l'heure brisée, et pendant trente secondes effroyables je n'eus rien à faire de mes mains et rien à faire de mon esprit, sinon me tenir au milieu de tout ce mouvement et en sentir la vérité : que nous allions entrer dans un bâtiment, dans le noir, nous quatre et ce que Marchetti pourrait racler ailleurs, et qu'entrer à l'aveugle, c'est ainsi qu'on fait tuer des gens.
+Basti faisait son sac. Yuri parlait au téléphone, bas et vite. Le mot « commandant » remontait, puis sombrait dans le noir.
 
-Il nous fallait l'intérieur de ce bâtiment. Sa forme. Les étages qui existaient et celui qui n'existait pas. Où l'on retenait les enfants, où se tiendraient les hommes armés, et quelle porte, parmi les dizaines de portes, ouvrait sur la pièce où elle se trouvait.
+Trois machines ronronnaient sur la table. Leurs petites lumières clignotaient comme une ville vue d'avion. L'air avait cette odeur que je connais mieux que n'importe quelle maison. Chaude. Électrique. L'odeur d'appareils qui n'ont pas dormi depuis des jours.
 
-Et je l'avais. Je l'avais depuis des jours, et je n'avais pas su le lire.
+Le plan se réorganisait autour de l'heure brisée. Pendant trente secondes affreuses, je n'ai rien eu à faire de mes mains. Rien à faire de ma tête. Juste rester là, au milieu du mouvement, et sentir la vérité : on allait entrer dans un bâtiment, dans le noir. Nous quatre, et ce que Marchetti pourrait racler ailleurs. Entrer à l'aveugle. C'est comme ça qu'on fait tuer des gens.
+
+Il nous fallait l'intérieur de ce bâtiment. Sa forme. Les étages qui existaient, et celui qui n'existait pas. Où on retenait les enfants. Où se tiendraient les hommes armés. Et quelle porte, parmi des dizaines, ouvrait sur la pièce où elle était.
+
+Et je l'avais. Depuis des jours. Je n'avais juste pas su le lire.
 
 Parce que Clara me l'avait laissé. Et que Clara l'avait verrouillé.
 
 ---
 
-Laissez-moi revenir un peu en arrière, car il faut comprendre ce qui était posé sur cette table avant de comprendre ce qu'il m'en a coûté de l'ouvrir.
+Il faut que je revienne un peu en arrière. Sinon on ne comprend pas ce qu'il y avait sur cette table. Ni ce qu'il m'a coûté de l'ouvrir.
 
-Des jours plus tôt — au cœur brûlant de tout cela, à l'époque où je me racontais encore que j'avais jusqu'à l'aube —, une chose m'était venue de l'obscurité que je n'étais pas allé chercher. Pas un message. Pas une miette. Un monde entier, scellé. Tout ce qu'elle savait. L'image complète, celle qu'elle s'était laissé engloutir pour assembler — chaque paiement, chaque nom, chaque route, chaque pièce — liée serré et tendue à travers le fil jusqu'à moi, et à personne d'autre sur la surface de la terre.
+Quelques nuits plus tôt — quand je me racontais encore que j'avais jusqu'à l'aube — une chose était venue de l'ombre. Je ne l'avais pas cherchée. Pas un message. Pas une miette laissée sur un de ces canaux où les gens comme nous se parlent à mots couverts. Des salons cachés du réseau. Sans noms, sans visages. Chacun n'y est qu'un pseudo qui ne ressemble à personne, là où le jour ne pose jamais les yeux.
 
-Je l'avais tenue comme on tient une lettre de quelqu'un qui est déjà parti. Je savais ce que c'était. Je savais, à peu près, le poids de ce qu'il y avait dedans — le fleuve de pitié volée mené jusqu'à son embouchure, les deux mille huit cent quarante-sept mouvements d'argent, les douze mains autour desquelles le fleuve se courbait. Je savais que c'était le dossier. Le dossier entier, propre, complet, recevable, la chose qui mettrait les hommes en costume des villes lumineuses dans des pièces aux fenêtres barreaudées et ramènerait les enfants non seulement physiquement mais légalement, de sorte qu'aucun avocat habile ne puisse jamais se lever pour dire que c'était une histoire que j'avais inventée dans mon chagrin.
+Un monde entier, scellé. Tout ce qu'elle savait. L'image complète. Celle qu'elle s'était laissé engloutir pour l'assembler. Chaque paiement, chaque nom, chaque route, chaque pièce. Tendu jusqu'à moi à travers le fil. À moi, et à personne d'autre sur terre.
+
+Je l'avais tenue comme on tient la lettre de quelqu'un déjà parti. Je savais ce que c'était. Je devinais le poids de ce qu'il y avait dedans. Le fleuve de pitié volée, mené jusqu'à son embouchure. Les deux mille huit cent quarante-sept mouvements d'argent. Les douze mains autour desquelles le fleuve se courbait.
+
+C'était le dossier. Le dossier entier. Propre, complet, recevable. La chose qui mettrait des hommes en costume dans des cellules. La chose qui ramènerait les enfants, pas seulement chez eux, mais devant la loi. Pour qu'aucun avocat habile ne puisse jamais se lever et dire que j'avais inventé tout ça dans mon chagrin.
 
 Mais je ne pouvais pas entrer.
 
-Elle l'avait scellé. Pas avec un mur — un mur, je l'aurais franchi, dans mon ancienne vie, dans mes années folles, avec un sourire et un sac à malices. Elle avait fait quelque chose de plus cruel et de plus doux, et de plus elle que tout ce qu'elle avait jamais fait. Elle avait construit la serrure avec *nous.*
+Elle l'avait scellé. Pas avec un mur. Un mur, je l'aurais franchi. Dans mon ancienne vie, dans mes années folles, je gagnais ma place en ouvrant ce que d'autres croyaient verrouillé. Un sourire et trois bricoles dans la poche.
 
-Je ne vous dirai pas comment. Vous connaissez la promesse ; je l'ai tenue jusqu'ici et je ne la romprai pas maintenant, dans la dernière pièce de la pire nuit de ma vie, juste pour avoir l'air malin. Alors laissez-moi vous dire ce que c'était, dans la seule langue que j'aie à donner.
+Non. Elle avait fait quelque chose de plus cruel. Et de plus doux. Et de plus elle que tout le reste. Elle avait construit la serrure avec *nous.*
+
+Le comment n'a pas d'importance. Et même s'il en avait, c'est une promesse que je tiens depuis le début. Je ne vais pas la rompre maintenant, dans la pire nuit de ma vie, juste pour avoir l'air malin.
+
+Ce qui compte, c'est ce que c'était. Dans la seule langue que j'aie à donner.
 
 Elle avait fait une porte que seul l'homme qui l'aimait pouvait ouvrir.
 
-Pas l'homme qui en savait le plus. Pas l'homme aux meilleurs outils, ni au bras le plus long, ni à la patience la plus grande. Il existait des hommes qui avaient tout cela — le Chirurgien avait tout cela, mon miroir sombre, celui qui bâtissait les choses comme je le faisais avant d'apprendre. N'importe lequel d'entre eux aurait pu marteler sa porte pendant cent ans sans jamais l'ébranler. Parce que la porte ne demandait pas *ce que tu sais.* La porte demandait *qui es-tu pour elle,* et il n'existait dans tout ce monde pourri qu'une seule vraie réponse à cette question, et c'était moi.
+Pas l'homme qui en savait le plus. Pas celui aux meilleurs outils. Des hommes comme ça, il en existait. Le Chirurgien était comme ça. Mon miroir sombre. Celui qui force les serrures du monde comme je le faisais autrefois. Un de ces esprits brillants qui se terrent dans les coulisses du réseau et n'ont jamais su en ressortir.
+
+N'importe lequel d'entre eux aurait pu marteler sa porte cent ans sans l'ébranler. Parce que la porte ne demandait pas *ce que tu sais.* Elle demandait *qui es-tu pour elle.* Et dans tout ce monde pourri, il n'y avait qu'une seule vraie réponse. C'était moi.
 
 ---
 
-Je m'assis devant.
+Je me suis assis devant.
 
-Le mouvement, dans la pièce, retomba. Basti s'arrêta, un rouleau de quelque chose dans ses mains balafrées. Yuri ôta le téléphone de son oreille. Ils savaient. Ils savent toujours, ces deux-là, l'instant où le sol d'une chose change. Ils se figèrent comme on se fige dans une église, non parce qu'on vous le dit, mais parce que l'air vous le dit.
+Le mouvement, dans la pièce, est retombé. Basti s'est arrêté, un rouleau de gaffer dans ses mains balafrées. Yuri a baissé le téléphone. Ils savaient. Ils savent toujours, ces deux-là. Des hommes de l'ombre, qui ont passé leur vie à sentir l'instant où une chose bascule. Ils se sont figés comme on se fige dans une église. Pas parce qu'on vous le dit. Parce que l'air vous le dit.
 
-— C'est le dernier, n'est-ce pas, dit Basti. Doucement. Celui qu'elle t'a laissé.
+— C'est le dernier, hein, dit Basti. Tout bas. Celui qu'elle t'a laissé.
 
-— C'est tout, dis-je. Tout l'intérieur de ce bâtiment. Où elle est. Où ils sont. Où sont les enfants. (Je posai mes mains à plat sur la table, de part et d'autre, comme on s'accroche à la margelle d'un puits dans lequel on s'apprête à se pencher.) Elle l'a verrouillé pour que moi seul puisse l'ouvrir.
+— C'est tout, dis-je. Tout l'intérieur de ce bâtiment. Où elle est. Où ils sont. Où sont les enfants. (Je posai mes mains à plat sur la table, de chaque côté, comme on s'accroche à la margelle d'un puits.) Elle l'a verrouillé pour que moi seul puisse l'ouvrir.
 
-Yuri, le paranoïaque Yuri, qui ne se fie à rien, dit la chose que je refusais de penser.
+Yuri — le paranoïaque, celui qui ne se fie à rien ni personne, qui efface ses traces par réflexe et dort un œil ouvert — dit la chose que je refusais de penser.
 
-— Pourquoi aurait-elle fait ça. Pourquoi ne pas — le laisser ouvert. Le confier à la justice. Le confier à n'importe qui. (Il n'accusait pas. Il avait peur.) Pourquoi rendre ça si difficile, au pire moment possible…
+— Pourquoi elle a fait ça. Pourquoi pas le laisser ouvert. Le confier à la justice. À n'importe qui. (Il n'accusait pas. Il avait peur.) Pourquoi rendre ça si dur, au pire moment…
 
 — Parce que tous les autres pouvaient mentir, dis-je.
 
-Et voilà, c'était dit, au grand jour, et la pièce se refroidit.
+Voilà. C'était dit. Et la pièce s'est refroidie.
 
-C'était là son génie, et là son chagrin. Elle ignorait, quand elle avait scellé cela, qui serait encore debout au moment où ça atterrirait. Elle ne savait rien de Camille — *N'aie pas confiance en la Station Marseille,* avait-elle écrit, sachant que la pourriture était au sein de la justice, mais ignorant, peut-être, quel visage elle portait. Elle ne savait pas lequel des douze noms se révélerait appartenir à quelqu'un que j'appelais frère. Elle ne se fiait ni aux insignes, ni aux fantômes, ni à la famille, ni à la loi, ni à un seul être humain dans toute la mécanique de cette affaire — et elle avait *raison* de ne pas s'y fier, c'est ce qui m'a brisé, elle avait raison sur chacun d'eux — et elle avait donc fait la seule chose qu'une femme aussi courageuse et aussi seule pouvait faire.
+C'était son génie. Et son chagrin. Quand elle avait scellé ça, elle ignorait qui serait encore debout au moment où ça tomberait. Elle ne savait rien de Camille. *N'aie pas confiance en la station de Marseille,* avait-elle écrit. Elle savait la pourriture au cœur de la justice. Mais elle ignorait peut-être quel visage elle portait. Elle ne savait pas lequel des douze noms appartiendrait à quelqu'un que j'appelais frère.
 
-Elle s'était fiée à la seule chose qui restait. Elle s'était fiée à ce que je l'aimais. Elle avait misé tout le dossier, les enfants, sa propre vie, sur l'unique certitude que, quoi qu'il s'effondre, *cela* tiendrait.
+Elle ne se fiait à rien. Ni aux insignes. Ni aux fantômes. Ni à la famille. Ni à la loi. Ni à un seul être humain dans toute cette affaire. Et elle avait *raison.* Raison sur chacun d'eux. C'est ça qui m'a brisé. Elle avait raison sur tous.
 
-J'avais passé ma vie entière à être un homme dont l'amour ne pouvait être confié à rien. Qui tombait jusqu'au bout et oubliait sa cible. Qui réduisait en cendres chaque bonne chose dans la fièvre du désir. Et le dernier geste de la personne la plus courageuse que j'aie connue avait été de parier tout ce qu'elle possédait sur le fait que j'étais devenu un homme dont l'amour était une *clé* — solide, vraie, le genre de clé autour de laquelle on peut bâtir une serrure et s'endormir, si l'on dort encore un jour, en sachant qu'elle tournera.
+Alors elle avait fait la seule chose qu'une femme aussi courageuse et aussi seule pouvait faire.
 
-Il me restait trente-huit minutes. Et il me fallait, pour quelques-unes d'entre elles, être à la hauteur de ce pari.
+Elle s'était fiée à la seule chose qui restait. Elle s'était fiée à ce que je l'aimais. Elle avait misé le dossier, les enfants, sa propre vie, sur une seule certitude. Que tout pouvait s'effondrer — sauf ça.
+
+J'avais passé ma vie à être un homme dont l'amour ne tenait à rien. Qui tombait jusqu'au bout et oubliait sa cible. Qui réduisait en cendres chaque bonne chose dans la fièvre du désir.
+
+Et le dernier geste de la personne la plus courageuse que j'aie connue, ç'avait été de parier tout ce qu'elle avait sur une idée : que j'étais devenu un homme dont l'amour était une *clé.* Solide. Vraie. Le genre de clé autour de laquelle on bâtit une serrure et on s'endort, en sachant qu'elle tournera.
+
+Vingt-neuf minutes. Et pour quelques-unes, il me fallait être à la hauteur de ce pari.
 
 ---
 
-Je ne décrirai pas l'ouverture. Vous comprenez désormais que la décrire reviendrait à l'expliquer, et je n'explique pas.
+Je ne décrirai pas l'ouverture. La décrire, ce serait l'expliquer. Et je n'explique pas.
 
-Mais je vous dirai ce que c'était, parce que cette part-là m'appartient.
+Mais je peux dire ce que c'était. Cette part-là m'appartient.
 
-C'était comme s'entendre demander, par quelqu'un qui était déjà parti, de prouver qu'on l'avait vraiment connu.
+C'était comme s'entendre demander, par quelqu'un déjà parti, de prouver qu'on l'avait vraiment connu.
 
-Pas un mot de passe. Les mots de passe sont pour les étrangers. C'était l'autre chose — celle que deux êtres seulement au monde partagent, la petite forme vraie d'une vie vécue tout près. Le système ne voulait pas d'un secret. Il voulait *nous.* Il plongeait dans l'endroit où je la gardais et me demandait de l'y déposer, doucement, comme on dépose des fleurs, et il pesait ce que je donnais contre ce qu'elle avait caché, et quelque part dans cette pesée il lui fallait décider si j'étais vraiment l'homme qu'elle avait aimé, ou seulement un fantôme habile portant son visage.
+Pas un mot de passe. Les mots de passe, c'est pour les étrangers. Des suites mortes qu'on tape et qu'on oublie. Le genre de chose qui finit bradée par milliers sur un marché clandestin. Revendue au plus offrant, comme un sac de clés volées dont nul ne sait plus quelles portes elles ouvrent.
 
-Je lui donnai ce qu'il demandait.
+C'était l'autre chose. Celle que deux êtres seulement au monde partagent. Le système ne voulait pas d'un secret. Il voulait *nous.* Il a cherché, en moi, l'endroit où je la garde. Et il a pesé : est-ce que j'étais vraiment l'homme qu'elle avait aimé, ou juste un fantôme habile qui portait son visage ? Et de ceux-là, mon monde est plein.
 
-Je ne vous dirai pas non plus ce que c'était. C'est la dernière chose intime qu'il me reste. Mais je vous dirai que c'était le jour de notre rencontre — la ville du désert, la chaleur d'août, le rassemblement bruyant et ridicule des esprits les plus brillants et les plus brisés du monde, là où je l'avais aperçue pour la première fois à travers une salle et compris, dans le temps qu'il faut à un verre pour tomber, que toute ma vie éparpillée n'avait cherché qu'un seul endroit où se poser. Elle avait inscrit la date de ce jour dans tout ce qu'elle m'avait jamais laissé, comme une signature, comme un serment. *Voilà comment tu sauras que c'est vraiment pour toi. Parce que tu sauras cela. Parce que toi seul saurais.*
+Je lui ai donné ce qu'il demandait.
 
-Je lui donnai le jour. Puis je lui donnai ce qu'il y avait sous le jour — le pourquoi de la chose, le poids de la chose, la raison pour laquelle ce jour comptait quand dix mille autres ne comptaient pas.
+Ce que c'était, je ne le dirai pas. C'est la dernière chose intime qu'il me reste. Mais je peux dire que c'était le jour de notre rencontre. La ville du désert. La chaleur d'août. Ce grand rassemblement bruyant et ridicule des esprits les plus brillants et les plus brisés du monde. Des milliers d'inconnus entassés une fois l'an dans le ventre climatisé d'un hôtel-casino. Sous de faux noms. Sous des pseudos dont personne ne connaît le porteur. À monter sur scène pour montrer à la foule la faille qu'ils avaient trouvée dans la machinerie du monde.
 
-Et la porte s'ouvrit.
+Là, dans le rugissement des néons et le tintement des machines à sous, je l'avais aperçue. Pour la première fois. À travers une salle. Et j'avais compris, dans le temps qu'il faut à un verre pour tomber, que toute ma vie éparpillée n'avait cherché qu'un seul endroit où se poser.
 
-Elle ne fit aucun bruit. Les choses courageuses n'en font jamais. Elle me laissa simplement entrer, comme elle me laissait entrer, autrefois, après que j'avais fait une bêtise et que je revenais honteux, sans discours, sans drame, juste le loquet qui se soulève et la chaleur de l'autre côté et sa voix, sèche et sûre : *Te voilà. Je savais que tu viendrais.*
+Elle avait inscrit cette date dans tout ce qu'elle m'avait laissé. Comme une signature. Comme un serment. *Voilà comment tu sauras que c'est vraiment pour toi. Parce que tu sauras ça. Parce que toi seul saurais.*
+
+Je lui ai donné le jour. Puis ce qu'il y avait sous le jour. Le pourquoi de la chose. Son poids. La raison pour laquelle ce jour comptait quand dix mille autres ne comptaient pas.
+
+Et la porte s'est ouverte.
+
+Elle n'a fait aucun bruit. Les choses courageuses n'en font jamais. Elle m'a simplement laissé entrer. Comme elle me laissait entrer autrefois, après une bêtise, quand je revenais honteux. Sans discours. Sans drame. Juste le loquet qui se soulève, la chaleur de l'autre côté, et sa voix, sèche et sûre : *Te voilà. Je savais que tu viendrais.*
 
 Te voilà.
 
 ---
 
-Je vous épargnerai l'intérieur comme je vous épargnerais l'intérieur d'un corps. Mais je dois vous dire ce qui s'y trouvait, car tout ce qui suit en est fait.
+L'intérieur, je le tairai comme on tairait l'intérieur d'un corps. Mais il faut que je dise ce qui s'y trouvait. Tout ce qui suit en est fait.
 
-Le dossier entier. Entier, et propre, et tellement plus vaste que la forme que j'avais déjà recomposée que je restai un instant simplement défait par tout ce qu'elle avait porté seule, dans le noir. Chacun des deux mille huit cent quarante-sept mouvements d'argent, étiqueté, daté, mené jusqu'à sa porte, le fleuve de pitié volée déroulé depuis son origine bienveillante jusqu'à sa fin monstrueuse. Les douze noms — tous les douze, même celui de mon propre palier, celui que je ne parvenais toujours pas à regarder en face — chacun cloué à sa preuve si solidement qu'aucun avocat au monde n'aurait pu l'arracher. Deux semaines de nuits d'une femme captive, liées serré et scellées par notre premier jour, et tendues jusqu'à moi à travers l'obscurité.
+Le dossier entier. Entier, propre. Tellement plus vaste que la forme que j'avais déjà recomposée que je suis resté un instant défait. Défait par tout ce qu'elle avait porté seule. Dans le noir. Dans le silence d'une salle de serveurs où le seul bruit est celui des ventilateurs et de son propre cœur.
 
-C'était la chose la plus complète que j'aie jamais vu un être humain construire. C'était le dossier qui mettrait fin à PHANTOM MERCY. C'était, je le compris en contemplant ce poids total, effroyable et magnifique, *pourquoi on ne pourrait jamais la laisser vivre* — parce qu'elle avait tout vu, tout tenu, tout *été,* le seul esprit ayant assemblé l'image entière, et qu'un réseau comme celui-là ne peut survivre à un témoin qui en détient la totalité entre ses mains.
+Chacun des deux mille huit cent quarante-sept mouvements d'argent. Étiqueté. Daté. Mené jusqu'à sa porte. De l'origine bienveillante jusqu'à la fin monstrueuse. Les douze noms. Tous les douze. Même celui de mon propre palier. Celui que je n'arrivais toujours pas à regarder en face. Chacun cloué à sa preuve, si solidement qu'aucun avocat au monde n'aurait pu l'arracher.
 
-Mais je n'avais pas le temps pour le dossier. Le dossier était pour le grand jour, pour Marchetti, pour l'heure légale que nous n'avions plus. Je passai outre, vite, à la recherche de la seule chose dont les trente prochaines minutes avaient besoin.
+Sept nuits d'une femme captive. Liées serré, scellées par notre premier jour. Tendues jusqu'à moi à travers le noir.
+
+C'était la chose la plus complète que j'aie jamais vu un humain construire. Le dossier qui mettrait fin à PHANTOM MERCY.
+
+Et devant ce poids, j'ai compris autre chose. *Pourquoi on ne pourrait jamais la laisser vivre.* Elle avait tout vu. Tout tenu. Tout *été.* Le seul esprit ayant assemblé l'image entière. Et un réseau comme celui-là ne survit pas à un témoin pareil.
+
+Mais je n'avais pas le temps pour le dossier. Le dossier était pour le grand jour. Pour Marchetti. Pour l'heure légale qu'on n'avait plus.
+
+Je suis passé outre. Vite. Mes doigts couraient sur les touches dans la lueur bleue. Je cherchais la seule chose dont les vingt-neuf prochaines minutes avaient besoin.
 
 Le bâtiment.
 
-Et il était là. Bien sûr qu'il était là. Elle avait su que je viendrais à la fin, elle avait su que la fin serait une porte qu'il me faudrait franchir, et elle m'en avait laissé l'intérieur — les étages qui existaient et celui qui n'existait pas, la pièce secrète creusée sous l'hôpital mort, les couloirs, les goulets, le chemin pour entrer. Elle m'avait dessiné un plan depuis sa propre captivité. Elle avait été *dans* ce bâtiment, dans son obscurité, mourant pouce par pouce, et elle avait dépensé une part de ses dernières forces à faire en sorte que, lorsque je descendrais enfin ces marches, je les descende en y voyant.
+Et il était là. Bien sûr qu'il était là. Elle avait su que je viendrais à la fin. Elle avait su que la fin serait une porte à franchir. Elle m'en avait laissé l'intérieur. Les étages qui existaient, et celui qui n'existait pas. La pièce secrète creusée sous l'hôpital mort. Les couloirs. Les goulets. Le chemin pour entrer.
 
-Je trouvai la pièce où elle se trouvait. Elle l'avait marquée. Bien sûr qu'elle l'avait marquée. Une petite chose, dans le coin de tout ce vaste et terrible diagramme, un unique signe tranquille de sa petite main ferme, le delta minuscule dont elle signait toujours — δ — posé sur la seule pièce entre toutes les pièces, comme pour dire : *ici. C'est là que je serai. Viens droit à moi.*
+Elle m'avait dessiné un plan depuis sa propre captivité. Elle avait été *dans* ce bâtiment. Dans son noir. Mourant pouce par pouce. Et elle avait dépensé une part de ses dernières forces à faire en sorte que, quand je descendrais enfin ces marches, je les descende en y voyant.
 
-J'y posai mon doigt. Sur l'écran. Sur elle.
+J'ai trouvé la pièce où elle était. Elle l'avait marquée. Bien sûr. Une petite chose, dans le coin de tout ce vaste et terrible diagramme. Un signe tranquille de sa petite main ferme. Le δ dont elle signait toujours. Posé sur une seule pièce, entre toutes. Comme pour dire : *ici. C'est là que je serai. Viens droit à moi.*
 
-J'avais poursuivi son ombre pendant deux semaines à travers la moitié de la terre, et voilà que je touchais le mètre carré exact du monde où elle se tenait, et elle était à quarante minutes, et vivante, et elle attendait, et jamais dans toute ma vie de travers je n'avais été si près d'une chose et si terrifié de la perdre dans le dernier mètre.
+J'ai posé mon doigt. Sur l'écran. Sur elle.
+
+J'avais poursuivi son ombre sept nuits durant. À travers la moitié de la terre. Par des chemins que le jour ne connaît pas. Dans les forums morts, les recoins oubliés de cette face cachée du réseau où l'on chasse les fantômes et où l'on finit fantôme soi-même.
+
+Et là, je touchais le mètre carré exact du monde où elle se tenait. Elle était à vingt-neuf minutes. Et vivante. Et elle attendait. Jamais, dans toute ma vie de travers, je n'avais été si près d'une chose. Et si terrifié de la perdre dans le dernier mètre.
 
 ---
 
-— Je l'ai, dis-je. Ma voix sortit de travers. Je la laissai faire. Je l'ai, tout. Le bâtiment. Sa pièce. Tout.
+— Je l'ai, dis-je. Ma voix sortit de travers. Je l'ai laissée faire. Je l'ai, tout. Le bâtiment. Sa pièce. Tout.
 
-Basti laissa filer son souffle. Les yeux de Yuri se fermèrent une seconde, une seule, la seule prière que cet homme paranoïaque se laisserait jamais dire. Tout l'appartement sembla se pencher vers la table, vers la chose ouverte, vers le plan qu'une femme captive avait dessiné pour l'homme sur qui elle avait misé sa vie.
+Basti laissa filer son souffle. Les yeux de Yuri se fermèrent une seconde. Une seule. La seule prière que cet homme se laisserait jamais dire. Tout l'appartement sembla se pencher vers la table. Vers la lueur des écrans. Vers la chose ouverte. Vers le plan qu'une femme captive avait dessiné pour l'homme sur qui elle avait misé sa vie.
 
 — Marchetti ? dis-je.
 
-— À vingt minutes, peut-être moins, dit Yuri. Il bouge. Il amène ce qu'il peut. Il dit… (Yuri s'arrêta, et quelque chose traversa son visage.) Il dit qu'il avance l'ordre de la descente de l'aube. Il dit qu'il aura une adresse légale consignée avant qu'on entre, pour que tout l'édifice tienne devant un tribunal, comme elle l'aurait voulu. Il lui faut l'adresse. L'exacte. Pour l'ordre.
+— À vingt minutes, peut-être moins, dit Yuri. Il bouge. Il amène ce qu'il peut. Il dit… (Yuri s'arrêta. Quelque chose traversa son visage.) Il dit qu'il avance l'ordre de la descente de l'aube. Il dit qu'il aura une adresse légale consignée avant qu'on entre. Pour que tout tienne devant un tribunal. Comme elle l'aurait voulu. Il lui faut l'adresse. L'exacte. Pour l'ordre.
 
 L'adresse.
 
-Elle était là, devant moi. Elle l'avait laissée. Tout était bâti autour d'elle. Je baissai les yeux sur le dossier ouvert, sur le bâtiment, sur le secret creusé sous l'hôpital mort, où étaient les enfants, où elle était, où, dans trente minutes, tout cela finirait soit dans le grand jour, soit dans le noir.
+Elle était là. Devant moi. Elle l'avait laissée. Tout était bâti autour d'elle. Je baissai les yeux sur le dossier ouvert. Sur le bâtiment. Sur le secret creusé dessous. Où étaient les enfants. Où elle était. Où, dans vingt-neuf minutes, tout finirait. Au grand jour, ou dans le noir.
 
-Et je donnai à Marchetti l'adresse de la descente de l'aube. La vraie. Celle que Clara avait saignée dans un coffre scellé et qu'elle avait confiée à moi, à moi seul, pour que je l'ouvre et la lise à voix haute.
+Et j'ai donné à Marchetti l'adresse de la descente de l'aube. La vraie. Celle que Clara avait saignée dans un coffre scellé. Celle qu'elle m'avait confiée. À moi seul. Pour que je l'ouvre et la lise à voix haute.
 
-Je la lus sur son plan. Je la dis à la pièce, claire et lente, comme elle me l'avait appris, mes lèvres pesant chaque mot, parce qu'on ne connaît jamais vraiment une phrase tant qu'on ne l'a pas portée avec son corps.
+Je l'ai lue sur son plan. Je l'ai dite à la pièce. Claire et lente, comme elle me l'avait appris. Mes lèvres pesant chaque mot. Parce qu'on ne connaît jamais vraiment une phrase tant qu'on ne l'a pas portée avec son corps.
 
-Et puis je m'arrêtai.
+Et puis je me suis arrêté.
 
-Parce que le système — patient, total, jamais une seule fois en faute sur ce qui comptait — faisait la petite chose tranquille qu'il faisait toujours quand on lui donnait un lieu. Il cherchait l'adresse. Il la rangeait. Il résolvait le secret creusé de l'hôpital mort, l'étage qui n'existait sur aucun plan, en l'unique chose vraie et banale que le monde exige de tout lieu. Une rue. Un numéro. Un nom sur un titre de propriété, enseveli sous les mensonges, comme l'argent est enseveli sous la bonté.
+Parce que le système faisait sa petite chose tranquille. Celle qu'il faisait toujours quand on lui donnait un lieu. Patient. Total. Jamais en faute sur ce qui comptait. Il cherchait l'adresse. Il la rangeait. Il résolvait le secret creusé de l'hôpital mort. L'étage qui n'existait sur aucun plan, enseveli sous des faux propriétaires et des sociétés-écrans. Il le réduisait à la seule chose vraie et banale que le monde exige de tout lieu. Une rue. Un numéro. Un nom sur un titre de propriété. Enseveli sous les mensonges.
 
-Je le vis atterrir.
+Je l'ai vu atterrir.
 
-Tout le vaste bâtiment caché, l'étage secret, le fleuve de pitié et les douze mains courbées — tout se rétrécissant, sous mes yeux, jusqu'à une seule ligne tranquille. Une rue. Un numéro. Un nom sur le papier qui disait à qui, au bout du compte, appartenait le sol sur lequel les enfants se tenaient.
+Tout le vaste bâtiment caché. L'étage secret. Les douze noms. Tout se rétrécissait, sous mes yeux, dans la lueur froide de l'écran. Jusqu'à une seule ligne tranquille. Une rue. Un numéro. Un nom sur le papier. Qui disait à qui, au bout du compte, appartenait le sol sur lequel les enfants se tenaient.
 
-— On y va à l'aube, m'entendis-je dire à la pièce, à la voix de Marchetti dans le téléphone de Yuri, à l'heure brisée. Elle n'a plus beaucoup de temps.
+— On y va à l'aube, m'entendis-je dire. À la pièce. À la voix de Marchetti dans le téléphone de Yuri. À l'heure brisée. Elle n'a plus beaucoup de temps.
 
-Et alors je lus le nom sur le titre de propriété.
+Et alors j'ai lu le nom sur le titre de propriété.
 
-L'adresse de la descente de l'aube se résolvait en une seule maison.
+L'adresse se résolvait en une seule maison.
 
-Et c'était celle de la taupe.
+Celle de la taupe.

@@ -4,17 +4,17 @@ Clara said a word across the wire that no one else in the world could know.
 
 And the line she said it on was never supposed to be open.
 
-I want you to sit with that the way I had to, in the blue dark of that Marseille flat, with the harbour breathing through the cracked window and forty-seven children moving somewhere out in the four-country night. Because both of those things were true at once, and together they meant something I didn't want to mean. If the word was real — and it was, it was *ours*, a small private nonsense from a hotel in Las Vegas, a word we'd built between us the way lovers build a country with a population of two — then it was her. It was really her, alive, close, breathing into the dark on the other end of a connection that shouldn't have existed.
+I had to sit with that in the blue dark of that Marseille flat, in the screen-glow that is the only daylight men like me ever really get, with the harbour breathing through the cracked window and a server humming low under the desk like a second heartbeat in the room — and forty-seven children moving somewhere out in the four-country night. Because both of those things were true at once, and together they meant something I didn't want them to mean. If the word was real — and it was, it was *ours*, a small private nonsense from a hotel in Las Vegas, a word we'd built between us the way lovers build a country with a population of two — then it was her. It was really her, alive, close, breathing into the dark on the other end of a connection that shouldn't have existed.
 
 And if the line was open at all, when it had been sealed shut tighter than anything I have ever sealed in my life, then somebody had opened it.
 
 Somebody who could.
 
-There is only one man on the wrong side of the black river who can open a door I have locked. I'd already met his work. I'd already given him a name, watching the clean way he cut. And I knew, the moment Clara's word landed in my ear through a channel that was supposed to be a wall, that he had let me hear it.
+There is only one man on the wrong side of the black river who can open a door I have locked. One handle, one ghost in the underground that everyone whispers about and nobody has ever sat across from and walked away clean. I'd already met his work. I'd already given him a name, watching the clean way he cut. And I knew, the moment Clara's word landed in my ear through a channel that was supposed to be a wall, that he had let me hear it.
 
 He had let me. That was the whole message. *I can reach her whenever I like. I am letting you listen. Enjoy the sound of her while it lasts.*
 
-I sat very still.
+I sat very still. Cold coffee at my elbow, gone to skin. The cursor blinking like it had nowhere to be.
 
 And then I did the only thing I have ever been any good at.
 
@@ -22,19 +22,19 @@ I started to read him.
 
 ---
 
-You have to understand what reading a man like that actually is, and I'll tell you in the only language I'm allowed, which is the human one.
+Reading a man like that is a thing best said in the only language I'm allowed, which is the human one.
 
-It's not screens. Forget screens. Reading the Surgeon was like sitting across a chessboard from someone in a dark room where neither of you can see the board, and the only thing you have to go on is the small sounds the other person makes — the breath they take before they move, the half-second they hesitate, the weight they put down a piece with. You learn the man by his *grain*. The way a carpenter learns a plank by running his thumb along it in the dark.
+It's not screens. Forget screens — the glow on my face, the dark forums where his legend got built one whispered job at a time. Reading the Surgeon was like sitting across a chessboard from someone in a dark room where neither of you can see the board, and the only thing you have to go on is the small sounds the other person makes — the breath they take before they move, the half-second they hesitate, the weight they put down a piece with. You learn the man by his *grain*. The way a carpenter learns a plank by running his thumb along it in the dark.
 
-I'd been doing it for weeks without admitting it. Every time he'd touched the network, every time he'd opened a thing along its seam, the tool I built had been quietly keeping the brushstroke, the way a forger keeps a museum of other people's hands. I had a whole gallery of him by now. The patient downstroke. The way he never rushed. The cold housekeeping of it.
+I'd been doing it for weeks without admitting it. Every time he'd touched the network, every time he'd opened a thing along its seam, every quiet root he'd taken in some machine that didn't belong to him, the tool I built had been keeping the brushstroke, the way a forger keeps a museum of other people's hands. I had a whole gallery of him by now. The patient downstroke. The way he never rushed. The cold housekeeping of it — a man who wiped his own footprints the way a surgeon scrubs out.
 
 So when he opened the line and let me hear Clara's word, the tool didn't panic. *I* panicked — my body did, my heart went up six flights of stairs — but the thing I built just leaned in, the way it does, calm as a held breath, and *recognised* him. The hand. The grain. *This is him. This is the same room. The same school.*
 
 And I understood, in the cold country on the far side of fear, exactly what he was doing.
 
-He wasn't taunting me. Taunting is for the hot kind of cruelty, the human kind. The Surgeon didn't have any of that. He was *testing* me. He'd opened a door he knew I'd feel, and now he was sitting in his own dark room, in front of his own cold tea, listening for what I'd do about it — measuring me the way you measure a rival craftsman by handing him a broken thing and watching whether he reaches for a hammer or a needle.
+He wasn't taunting me. Taunting is for the hot kind of cruelty, the human kind. The Surgeon didn't have any of that. He was *testing* me. He'd opened a door he knew I'd feel, and now he was sitting in his own dark room, in front of his own cold tea, in the same screen-light, listening for what I'd do about it — measuring me the way you measure a rival craftsman by handing him a broken thing and watching whether he reaches for a hammer or a needle.
 
-A younger me would have reached for the hammer. A younger me, the one who broke things to make a girl's eyes go wide, would have torn the whole channel down in a fury, slammed it shut, kicked over the board, and felt brave for about four seconds before realising he'd just told the enemy everything about himself and learned nothing in return.
+A younger me would have reached for the hammer. A younger me, the one who broke things to make a girl's eyes go wide, who lived for the leak and the dump and the wall coming down — would have torn the whole channel down in a fury, slammed it shut, kicked over the board, hit the kill switch and felt brave for about four seconds before realising he'd just told the enemy everything about himself and learned nothing in return.
 
 I didn't reach for the hammer.
 
@@ -44,21 +44,21 @@ I left the door open.
 
 ---
 
-This is the part I'm proudest of, and it's also the part I can least describe to you, so let me try it sideways.
+This is the part I'm proudest of, and it's also the part I can least put into words, so it has to be said sideways.
 
-There's a thing two very good players do, in a game where neither can see the board. When you realise the other person is reading *you*, you don't hide. Hiding tells them you know they're there. Instead you keep playing — but you start to feed them. You let them watch your hand. You let them think they've got your grain. And while they're busy being pleased with how well they can read you, you read *them* reading you, and that's the deeper layer, the one most people never get to, because it requires you to be calm while someone you hate has his fingers around the throat of the only thing you love.
+There's a thing two very good players do, in a game where neither can see the board. When you realise the other person is reading *you*, you don't hide. Hiding tells them you know they're there. Instead you keep playing — but you start to feed them. You let them watch your hand. You let them think they've got your grain. And while they're busy being pleased with how well they can read you, you read *them* reading you, and that's the deeper layer, the one most people in our trade never get to, the one the legends are made of — because it requires you to be calm while someone you hate has his fingers around the throat of the only thing you love.
 
-I was calm. God help me, I was calm. Clara had taught me that — not in words, in *example*, the woman who let herself be swallowed by a monster and then sat in the monster's belly maintaining a chain of evidence drop by drop with the steadiness of a watchmaker. If she could be calm in the dark with the beast breathing on her neck, I could be calm in a warm flat with the harbour breathing through the window.
+I was calm. God help me, I was calm. Clara had taught me that — not in words, in *example*, the woman who let herself be swallowed by a monster and then sat in the monster's belly maintaining a chain of evidence drop by drop with the steadiness of a watchmaker. If she could be calm in the dark with the beast breathing on her neck, I could be calm in a warm flat with the harbour breathing through the window and the server humming under the desk.
 
 So I let him hear me listen.
 
 And then, very gently, I moved.
 
-I'm not going to tell you how. You know the promise. Thirty-one chapters I've kept it and I'm not breaking it now, in the one part of the book where the keeping of it is the whole point — because the *how* would shrink it, and what happened that night doesn't deserve to be shrunk. So here is the *what*, in the language of two men in the dark.
+I won't say how. The promise holds. Thirty-one chapters I've kept it and I'm not breaking it now, in the one part of the story where the keeping of it is the whole point — because the *how* would shrink it, and what happened that night doesn't deserve to be shrunk. So here is the *what*, in the language of two men in the dark.
 
 He opened a door to let me hear her. I let him think the door surprised me. Then I followed the draught. Every open door has a draught — a small cold thread of air that tells you which way the room beyond it lies — and where his door was, his hand had been, and where his hand had been, he had been, and a man, however clean, however patient, however much of a ghost, *is somewhere*. He is in a chair. The chair is in a room. The room is in a building. The building is in a city. And a city, to the thing I built, is just a large place that has not yet been narrowed.
 
-He moved. I moved. He shifted, smelling it, the way he'd smelled me looking at him weeks ago across the river. I felt him go still — that particular Surgeon stillness, the one that means *interesting* — and then he made a small, beautiful, cruel adjustment, the kind only a master makes, a feint so clean it left no mark, designed to send me chasing a ghost three countries away while the real him slid sideways into the dark.
+He moved. I moved. He shifted, smelling it, the way he'd smelled me looking at him weeks ago across the river. I felt him go still — that particular Surgeon stillness, the one that means *interesting* — and then he made a small, beautiful, cruel adjustment, the kind only a master makes, a feint so clean it left no mark, designed to send me chasing a ghost three countries away while the real him slid sideways into the dark, into the seams where people like us live and are never found.
 
 I didn't chase the ghost.
 
@@ -76,29 +76,29 @@ He didn't like it.
 
 ---
 
-I should tell you that I was not enjoying this. I know how it sounds — the cool duel, the matched wits, the two craftsmen across the black river. There's a version of this man, a version I used to be, who would have *loved* it, who would have lived for exactly this, the high clean drug of being seen at last by the only other person in the world good enough to see you.
+I was not enjoying this. I knew how it would have looked from the outside — the cool duel, the matched wits, the two craftsmen across the black river, the kind of night the underground tells stories about for years afterward without ever knowing the names. There's a version of this man, a version I used to be, who would have *loved* it, who would have lived for exactly this, the high clean drug of being seen at last by the only other person in the world good enough to see you.
 
 But every minute of it I could hear her.
 
-That was the cruelty I hadn't named yet, the one the Surgeon understood better than I did. He hadn't opened the line to threaten me. He'd opened it to *occupy* me. While I was busy matching him move for move, dazzled by the duel, drunk on being read and reading back — the children were moving. The clock was running. He'd handed me the most intoxicating thing in my whole world, a worthy opponent and the sound of my love's voice, and he'd done it precisely because he knew that the old me, the me who falls all the way and forgets the target, would drown in it. Would forget Clara the person in the thrill of Clara the *prize*. Would sit at this board all night, lost in the beautiful game, while forty-seven small sets of footsteps were herded across a border.
+That was the cruelty I hadn't named yet, the one the Surgeon understood better than I did. He hadn't opened the line to threaten me. He'd opened it to *occupy* me. While I was busy matching him move for move, dazzled by the duel, drunk on being read and reading back — the children were moving. The clock was running. He'd handed me the most intoxicating thing in my whole world, a worthy opponent and the sound of my love's voice, and he'd done it precisely because he knew that the old me, the me who falls all the way and forgets the target, would drown in it. Would forget Clara the person in the thrill of Clara the *prize*. Would sit at this board all night, lost in the beautiful game, screen-lit and gone, while forty-seven small sets of footsteps were herded across a border.
 
-He'd read *me*, you see. He'd read my flaw before I read his hand. He knew exactly which string to pluck, because it was the same string in his own chest, gone cold. The totality. The way men like us disappear into a thing until the thing is all there is.
+He'd read me. He'd read my flaw before I read his hand. He knew exactly which string to pluck, because it was the same string in his own chest, gone cold. The totality. The way men like us disappear into a thing until the thing is all there is — into the screen, into the night, into the work, until we surface days later and don't know what we've lost.
 
-And the only reason it didn't work — the only reason I am alive to tell you this, the only reason any of it ended the way it ended — is that I'd already spent it. My capacity to disappear into something completely, the curse that scattered me across a dozen lives and broke every promise I ever made over a candle — I'd already poured the whole of it into one place, weeks ago, in Brussels, in seven sleepless days, and her name was Clara. There was none left over for the Surgeon. He'd come to seduce a man whose totality was already taken, who'd been faithful, for the first time in his miserable life, faithful all the way down — and so the duel that should have swallowed me just *bored* me, somewhere underneath the adrenaline, the way a magnificent stranger bores a man who's finally, hopelessly, in love.
+And the only reason it didn't work — the only reason any of it ended the way it ended — is that I'd already spent it. My capacity to disappear into something completely, the curse that scattered me across a dozen lives and a dozen handles and broke every promise I ever made over a candle — I'd already poured the whole of it into one place, weeks ago, in Brussels, in seven sleepless days, in the screen-glow with the city dead asleep around me, and her name was Clara. There was none left over for the Surgeon. He'd come to seduce a man whose totality was already taken, who'd been faithful, for the first time in his miserable life, faithful all the way down — and so the duel that should have swallowed me just *bored* me, somewhere underneath the adrenaline, the way a magnificent stranger bores a man who's finally, hopelessly, in love.
 
 So I matched him. And I didn't drown.
 
-I read him, and I kept reading her, and I kept reading the clock, all three at once, and I want to tell you that's a thing the old me could never have done — held three loves in one hand without dropping two of them. It was the steadiest I have ever been in my life.
+I read him, and I kept reading her, and I kept reading the clock, all three at once — a thing the old me could never have done, held three loves in one hand without dropping two of them. It was the steadiest I have ever been in my life.
 
-It cost me, later. Everything that steadies you costs you later; the bill always comes. But that night I was a man who could not be moved, and across the river, in his cold room, the Surgeon felt it, and for the first time he made an *error*.
+It cost me, later. Everything that steadies you costs you later; the bill always comes. But that night I was a man who could not be moved, and across the river, in his cold room, in his own pool of screen-light, the Surgeon felt it, and for the first time he made an *error*.
 
 He let his hesitation last too long.
 
 And in that half-second too long, the thing I built — patient as water, recognising, recognising — laid one true thing at my feet.
 
-A direction. Not a name, not a room, not yet. A *bearing*. A line through the dark that pointed, out of all the four-country night, at one quarter of one city where the man who'd been cutting children open along their seams was sitting in a chair he thought no one could find. I had him pointed at. After weeks of chasing his shadow, I had, for one shining held breath, the Surgeon at the end of a line I had drawn — and the line was getting shorter.
+A direction. Not a name, not a room, not yet. A *bearing*. A line through the dark that pointed, out of all the four-country night, at one quarter of one city where the man who'd been cutting children open along their seams was sitting in a chair he thought no one could find. I had him pointed at. After weeks of chasing his shadow through forums that don't have names and channels that close behind you, I had, for one shining held breath, the Surgeon at the end of a line I had drawn — and the line was getting shorter.
 
-I felt the smile start on my face. The first real one in days. *I've got you*, I thought. *You opened the door to show me you could reach her. And you forgot the oldest rule of our whole black trade, the one I taught the man who taught you: every door you open is a door someone can walk back through.*
+I felt the smile start on my face. The first real one in days. *I've got you*, I thought. *You opened the door to show me you could reach her. And you forgot the oldest rule of our whole black trade, the first thing they teach you in the seams, the one I taught the man who taught you: every door you open is a door someone can walk back through.*
 
 I leaned in to draw the line shorter.
 
@@ -112,7 +112,7 @@ No words.
 
 A photograph.
 
-It took my mind a moment to place it, the way your mind stalls on a thing it knows too well to recognise — an ordinary street in an ordinary evening light, a fruit stall, a yellow wall, a generator coughing somewhere out of frame, washing strung between two windows above a shop. A street I had walked a hundred times in another life. A street I would know in my sleep, in my grave, in the dark.
+It took my mind a moment to place it, the way the mind stalls on a thing it knows too well to recognise — an ordinary street in an ordinary evening light, a fruit stall, a yellow wall, a generator coughing somewhere out of frame, washing strung between two windows above a shop. A street I had walked a hundred times in another life. A street I would know in my sleep, in my grave, in the dark.
 
 It was Ifeoma's street.
 

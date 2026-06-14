@@ -5,9 +5,9 @@ from pathlib import Path
 import markdown2
 
 BOOK_DIR = Path(__file__).parent
-OUT_PDF  = BOOK_DIR / "Le_Protocole_Clara.pdf"
-OUT_EPUB = BOOK_DIR / "Le_Protocole_Clara.epub"
-OUT_HTML = BOOK_DIR / "Le_Protocole_Clara.html"
+OUT_PDF  = BOOK_DIR / "Clara_Protocol.pdf"
+OUT_EPUB = BOOK_DIR / "Clara_Protocol.epub"
+OUT_HTML = BOOK_DIR / "Clara_Protocol.html"
 
 _CHROME = [
     r"C:\Program Files\Google\Chrome\Application\chrome.exe",
@@ -18,7 +18,7 @@ _CHROME = [
 ]
 CHROME = next((p for p in _CHROME if os.path.exists(p)), _CHROME[0])
 
-TITLE   = "Le Protocole Clara"
+TITLE   = "Clara Protocol"
 SERIES  = "Les Dossiers Delta — Livre Premier"
 AUTHOR  = "deepload"
 TAGLINE = "Il avait tout forcé. Pour la retrouver, il a dû construire quelque chose."

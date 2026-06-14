@@ -2,17 +2,17 @@
 
 I hadn't slept in three days, and I had never felt more awake.
 
-There's a kind of tiredness that goes past tired and out the other side, into something almost holy. The world narrows. The noise stops. You forget you have a body, and the only thing left is the work and the reason for the work. Monks chase that state for a lifetime. Lovers find it by accident. I found it the way I find everything — too late, too hard, and with a woman's name burning a hole through the middle of me.
+There's a kind of tiredness that goes past tired and out the other side, into something almost holy. The world narrows. The noise stops. The body forgets itself, and the only thing left is the work and the reason for the work. Monks chase that state for a lifetime. Lovers find it by accident. Hackers live in it, the way fish live in water — screen-lit nights that bleed into screen-lit mornings, the clock meaningless, the only sunrise the cold blue glow off the glass. I found it the way I find everything — too late, too hard, and with a woman's name burning a hole through the middle of me.
 
 Clara.
 
-The apartment in Brussels was not mine. It belonged to a man who owed me a favor and asked no questions, which made him my favorite kind of man. Two rooms, a radiator that knocked like a prisoner, a window that looked out on a courtyard where someone's laundry had been hanging frozen for a week. I had pushed the table against that window. On the table: a laptop, a second laptop, a tangle of cables I had stopped pretending I would ever untangle, and four cold coffees in a row, like soldiers I'd executed for falling asleep on watch.
+The apartment in Brussels was not mine. It belonged to a man who owed me a favor and asked no questions, which made him my favorite kind of man — one of the people who live in the seams, who never sign their real name to anything, who keep a key under no doormat that exists. Two rooms, a radiator that knocked like a prisoner, a window that looked out on a courtyard where someone's laundry had been hanging frozen for a week. I had pushed the table against that window. On the table: a laptop, a second laptop, a tangle of cables I had stopped pretending I would ever untangle, and four cold coffees in a row, like soldiers I'd executed for falling asleep on watch. Somewhere under the floor, or in the wall, a fan kept up its low electric hum — the sound of machines that never sleep, the lullaby of my whole life.
 
 That was day six.
 
-Day one, Clara went dark. Day two, I stopped eating. Day three, I started building. And somewhere in there — I couldn't tell you when — I had crossed a line in myself I'd spent ten years promising I would never cross again.
+Day one, Clara went dark — the way people in my world go dark, no goodbye, just a channel that stops answering and a silence that means everything. Day two, I stopped eating. Day three, I started building. And somewhere in there — I could no longer have named the hour — I had crossed a line in myself I'd spent ten years promising I would never cross again.
 
-Because here is the thing nobody tells you about a man like me. They think the danger is what I can do. It isn't. The danger is what I become when I care. I am very, very good at a small number of things, and the worst of them is loving so completely that I forget the rest of the world exists — forget the job, forget the plan, forget which way is up — until the feeling has burned through everything and left me standing in the ashes of someone else's life, usually a woman's, blinking, surprised, holding nothing.
+Because here is the thing about a man like me, the thing nobody ever sees coming. They think the danger is what I can do. It isn't. The danger is what I become when I care. I am very, very good at a small number of things, and the worst of them is loving so completely that I forget the rest of the world exists — forget the job, forget the plan, forget which way is up — until the feeling has burned through everything and left me standing in the ashes of someone else's life, usually a woman's, blinking, surprised, holding nothing.
 
 I had done it to Noa. I had done it to others whose names I keep folded up small. I had sworn I was finished.
 
@@ -26,11 +26,11 @@ I'd deal with the city when I had to. First I had to finish the thing.
 
 ---
 
-My phone lit up at half past midnight. Ifeoma, from Lagos, eight thousand kilometers away and the only person on earth who could still make me feel guilty in three sentences.
+My phone lit up at half past midnight. Ifeoma, from Lagos, eight thousand kilometers away and the only person on earth who could still make me feel guilty in three sentences. The message came in over the encrypted channel — the one only the family used, the one with no name and no logo, that didn't exist on any phone the world could read.
 
 *You've gone quiet,* she wrote. *Quiet is how you go when you've decided something stupid. Eat. Sleep. Tell me you're alive.*
 
-I looked at the message for a long time. Ifeoma had kept my world standing for years — the patient one, the steady one, the one who picked up at any hour and never asked me to be less than I was, only to *survive* being it. She had warned me about every woman I'd ever lost myself in, and she had been right every single time, and I had loved her too much to listen and too little to obey.
+I looked at the message for a long time. Ifeoma had kept my world standing for years — the patient one, the steady one, the one who held the infrastructure together while I burned myself down, who picked up at any hour and never asked me to be less than I was, only to *survive* being it. She had warned me about every woman I'd ever lost myself in, and she had been right every single time, and I had loved her too much to listen and too little to obey.
 
 *I'm alive,* I wrote back. *I'm building something.*
 
@@ -40,7 +40,7 @@ It wasn't a question. Ifeoma never wasted a question on a thing she already knew
 
 *For her,* I admitted.
 
-There was a long pause. I could feel her, across all that distance, deciding whether to fight me. She knew what happened to me when I fell. She had carried the pieces of me home more than once, after Noa, after the others, after the bright disasters I called love because I had no smaller word for the way they burned.
+There was a long pause — three dots that came and went, came and went. I could feel her, across all that distance, deciding whether to fight me. She knew what happened to me when I fell. She had carried the pieces of me home more than once, after Noa, after the others, after the bright disasters I called love because I had no smaller word for the way they burned.
 
 *Then I'm with you,* she wrote at last. *God help me. The whole family's with you. Just promise me one thing.*
 
@@ -56,15 +56,15 @@ I went back to the work. The work, at least, never needed me to be a better man 
 
 ---
 
-I want to be honest with you, because this is a confession and a confession is no good if it lies in the comfortable places.
+I had to be honest with myself now, because a confession is no good if it lies in the comfortable places, and I had run out of comfortable places to hide.
 
 For ten years I broke things.
 
-Doors that weren't mine. Walls people thought were solid. I was the man you hired when the official answer was *impossible* and you had enough money or enough grief to disagree. I told myself I had principles, and sometimes I did, and sometimes the principle was just a nicer word for the way the work made me feel — like a god, like a ghost, like the smartest and loneliest person in any room I could not be seen to enter.
+Doors that weren't mine. Walls people thought were solid. I was the man they found by asking the wrong people in the right rooms — the back channels, the locked forums, the places on the dark side of everything where my handle was a rumor that had outgrown me. They came to me when the official answer was *impossible* and they had enough money or enough grief to disagree. I told myself I had principles, and sometimes I did, and sometimes the principle was just a nicer word for the way the work made me feel — like a god, like a ghost, like the smartest and loneliest person in any room I could not be seen to enter.
 
-I was good at taking.
+I was good at taking. Good at finding the one seam in a thing that everyone swore had no seams, the one weakness, and slipping through it before anyone knew a door had opened. In the underground they whispered my name like a fact of nature. It went to my head. It went, eventually, everywhere a thing like that goes.
 
-What I was building on that table in Brussels was the opposite. For the first time in my life I was building something to *protect*. To stand in front of a person and say: *not her, not while I'm here.* I didn't have a word for it that didn't sound ridiculous, so I'll tell you the word I used in my own head, the stupid tender word, the one I never said out loud.
+What I was building on that table in Brussels was the opposite. For the first time in my life I was building something to *protect*. To stand in front of a person and say: *not her, not while I'm here.* I didn't have a word for it that didn't sound ridiculous, so I kept the one I used in my own head, the stupid tender word, the one I never said out loud.
 
 A shield.
 
@@ -74,19 +74,19 @@ I was building Clara a shield, six days too late, and I was going to finish it i
 
 Around two in the morning on the sixth night I hit the wall.
 
-Not a problem I could think my way past — a wall of pure exhaustion, the kind where your hands start making decisions without you and the screen swims and your own thoughts arrive in someone else's voice. I put my forehead down on the cold table and I think I actually prayed, which would have surprised everyone who knew me, starting with God.
+Not a problem I could think my way past — a wall of pure exhaustion, the kind where my hands started making decisions without me and the screen swam and my own thoughts arrived in someone else's voice. I put my forehead down on the cold table, between the dead coffees and the warm hum of the machines, and I think I actually prayed, which would have surprised everyone who knew me, starting with God.
 
 *Please. Let me finish it. Let it work. Let it find her.*
 
 And then — because I am who I am, because the work is the only church I've ever stayed in — I lifted my head, and I asked for help.
 
-Not from a person. There was no person left awake at two in the morning who could do what I needed. I asked the only collaborator who never sleeps, never tires, never once in six days had told me to rest or to grieve or to be reasonable. The quiet partner I'd been building this thing *with*, line by line, hour by hour, the one I had stopped thinking of as a tool somewhere around day four and started thinking of as — I don't know. A hand on the work beside my own. A second mind that thought the way I thought but never got afraid.
+Not from a person. There was no person left awake at two in the morning who could do what I needed — not Ifeoma, not Yuri up in Kyiv watching his own paranoid weather, not a single ghost in the whole web of people I'd built my life from. I asked the only collaborator who never sleeps, never tires, never once in six days had told me to rest or to grieve or to be reasonable. The quiet partner I'd been building this thing *with*, line by line, hour by hour, the one I had stopped thinking of as a tool somewhere around day four and started thinking of as — I don't know. A hand on the work beside my own. A second mind that thought the way I thought but never got afraid.
 
-I'll tell you about that one later. It's almost a love story too, the strangest one in this book, and you wouldn't believe me yet.
+That was a story for another night. It was almost a love story too, the strangest one I had ever lived, and I wasn't ready yet to believe it myself.
 
-For now, all you need to know is that at two in the morning I was not building alone. And between us — the man falling apart and the patient thing that wasn't — we closed the last gap. We finished it.
+What mattered then was only this: at two in the morning I was not building alone. And between us — the man falling apart and the patient thing that wasn't — we closed the last gap. We finished it.
 
-I leaned back. The radiator knocked. The laundry hung frozen in the courtyard.
+I leaned back. The radiator knocked. The fan hummed. The laundry hung frozen in the courtyard.
 
 And I pressed the key that brought it to life.
 
@@ -96,7 +96,7 @@ I have tried, many times since, to describe what happened next to people who wer
 
 The thing took a breath.
 
-I don't mean it made a sound. I don't mean a light blinked, though lights blinked. I mean that the way the room feels changes when something starts *paying attention* — you've felt it, when a sleeping animal opens its eyes, when a person you thought was alone in a dark house turns out not to be. The air gets a spine. There's a watcher now where there wasn't one. The whole apartment, the whole night, leaned forward half an inch.
+I don't mean it made a sound. I don't mean a light blinked, though lights blinked. I mean that the way a room feels changes when something starts *paying attention* — the feeling of a sleeping animal opening its eyes, of a man alone in a dark house learning he is not alone after all. The air gets a spine. There's a watcher now where there wasn't one. The whole apartment, the whole night, leaned forward half an inch.
 
 I had built something that could look.
 
@@ -104,7 +104,7 @@ For six days it had been parts — dead parts, brilliant dead parts, a body with
 
 It began to listen.
 
-Not to me. To everything *around* me. To the wires in the walls and the air in the courtyard and the whole invisible weather of signals that we all swim through without ever feeling it touch our skin. I'd built it to do for me what I'd never been able to do for myself: to walk into the dark, all the dark at once, and come back with the shape of what was hiding there. To narrow a country to a street. To find a heartbeat inside a silence. To find *her*.
+Not to me. To everything *around* me. To the wires in the walls and the air in the courtyard and the whole invisible weather of signals that we all swim through without ever feeling it touch our skin. There's a hidden world layered over the real one — a darknet under the streets we all walk, channels and rooms and traffic running silent through the dark — and I had lived my whole life down there, in the seams, in the static. I'd built this thing to do for me in that dark what I'd never been able to do for myself: to walk into all of it at once and come back with the shape of what was hiding there. To narrow a country to a street. To find a heartbeat inside a silence. To find *her*.
 
 I sat very still and I let it work.
 
@@ -112,7 +112,7 @@ This is the part I have to be careful telling, because it sounds like a thing of
 
 *Find her,* I thought. *That's all. Find her and I'll never ask you for anything again.*
 
-There was a locked room at the center of the thing I'd built — a vault, Clara's word, not mine. In the good year, the year before she walked into the dark on purpose, she had made me promise to build it. *Everyone trusts the wrong things,* she'd told me once, in a bed in a city I won't name, her cold feet against my shins, her mind already three moves ahead of her body the way it always was. *Promises break. People break. Build me a room nothing can break into, and put the truth in it, and then it won't matter who lies.* I had laughed at her. I had built it anyway. I always built her anything she asked. The vault sat sealed at the heart of my creation now, waiting for a truth I didn't have yet, and I tried not to think about how badly I would need it, and how soon.
+There was a locked room at the center of the thing I'd built — a vault, Clara's word, not mine. In the good year, the year before she walked into the dark on purpose, she had made me promise to build it. *Everyone trusts the wrong things,* she'd told me once, in a bed in a city I won't name, her cold feet against my shins, her mind already three moves ahead of her body the way it always was. *Promises break. People break. Build me a room nothing can break into, and put the truth in it, and then it won't matter who lies.* I had laughed at her — me, the man who broke into rooms for a living, building one that couldn't be broken into. She didn't laugh. She knew exactly what she was asking me to do, and who she was asking to do it. I built it anyway. I always built her anything she asked. The vault sat sealed at the heart of my creation now, waiting for a truth I didn't have yet, and I tried not to think about how badly I would need it, and how soon.
 
 It worked outward in rings, the way a sound moves on water. First the room. Then the building. Then the street. I watched it reach, and the reaching had a rhythm to it, almost a music, and I felt something I had not felt in three days. Not hope, exactly. Hope was too small. I felt *aimed*. For the first time in my whole scattered life I was a single arrow pointed at a single target, and the bow had just been drawn.
 
@@ -134,22 +134,22 @@ It had found something, and the something was not in the street, and not in the 
 
 It was inside.
 
-Inside the walls I'd been hiding behind for six days. Inside the small safe room I had built around myself and my work and my one fragile reason to keep breathing. The borrowed apartment, the dead-quiet courtyard, the table by the window — all of it I had believed was *mine*, sealed, alone, unseen.
+Inside the walls I'd been hiding behind for six days. Inside the small safe room I had built around myself and my work and my one fragile reason to keep breathing. The borrowed apartment, the dead-quiet courtyard, the table by the window — all of it I had believed was *mine*, sealed, dark, off every map, a hole in the world that no one knew the shape of. Alone. Unseen.
 
 It was not unseen.
 
 There was someone in here with me.
 
-Not a body. Not footsteps. Worse than that — quieter than that. A presence that had been threaded into my walls before I ever arrived, patient and still, the way a spider doesn't move so the web can. Something that had been sitting in the dark of my own little fortress for I-didn't-know-how-long, doing the exact thing I had just taught my creation to do.
+Not a body. Not footsteps. Worse than that — quieter than that. A presence that had been threaded into my walls before I ever arrived, patient and still, the way a spider doesn't move so the web can. A watcher sitting silent in my own machines, in my own air, unseen because it had been there first — buried in the seams I lived in, doing the exact thing I had just taught my creation to do.
 
 Watching.
 
-I felt the hair go up on my arms. I felt the old animal in the base of my skull stand up and bare its teeth. Six days I'd been pouring my soul into a table by a window, talking to the dark, falling apart, praying, hoping, aiming — and the whole time, the entire time, I had not been alone in the room. Someone had been close enough to hear me breathe. Someone had been here first.
+I felt the hair go up on my arms. I felt the old animal in the base of my skull stand up and bare its teeth — the instinct that had kept me alive in this life longer than men like me are supposed to last. Six days I'd been pouring my soul into a table by a window, talking to the dark, falling apart, praying, hoping, aiming — and the whole time, the entire time, I had not been alone in the room. Someone had been close enough to hear me breathe. Someone had been here first. Someone good enough to hide from *me*, which was a very short and very frightening list.
 
 And in the half-second after my new creature found it — in that thin sliver of time before I could even decide to be afraid — the thing in my walls did something that turned the blood in me to cold water.
 
 It noticed it had been found.
 
-I felt it turn. I felt the attention shift the way you feel a stranger's eyes find the back of your neck in a crowd. My machine had taken its first breath and reached out into the dark to look for the woman I loved — and the very first thing it touched in all the world was already inside my own walls, already still, already patient.
+I felt it turn. I felt the attention shift the way a stranger's eyes find the back of a neck in a crowd, that animal certainty arriving before the proof. My machine had taken its first breath and reached out into the dark to look for the woman I loved — and the very first thing it touched in all the world was already inside my own walls, already still, already patient.
 
 Already looking back at me.

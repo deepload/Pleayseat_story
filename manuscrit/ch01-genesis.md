@@ -1,133 +1,193 @@
 # Chapitre 1 : Genèse
 
-À 23 h 47, un mardi de février, dans un appartement bruxellois qui sentait le café froid et la pluie plus froide encore, mon téléphone s'est allumé sur le seul nom que je m'étais entraîné, deux ans durant, à ne plus attendre.
+23 h 47. Un mardi de février. Un appartement de Bruxelles qui sentait le café froid, la pluie, et la chaleur sèche des machines qui ne dorment jamais.
+
+Mon téléphone s'est allumé. Sur un seul nom. Le nom que je m'étais entraîné, deux ans durant, à ne plus attendre.
 
 Clara.
 
-J'aimerais vous dire que je suis resté calme. J'aimerais vous dire que l'homme qui passe pour une légende dans certaines pièces — celui dont on murmure le nom quand on me croit sourd — a regardé cet écran sans rien ressentir d'autre qu'un sang-froid de professionnel.
+J'aurais voulu rester calme. Être l'homme qu'on prend pour une légende dans certaines pièces. Celui dont on chuchote le nom, à voix basse, sur des canaux qui n'existent sur aucune carte. L'homme qui regarde cet écran sans rien sentir.
 
-La vérité, c'est que j'ai renversé un verre. La vérité, c'est que mes mains ont cessé de m'obéir une seconde, comme elles le font quand le corps sait une chose que l'esprit n'a pas encore rattrapée. La vérité, c'est que je suis resté là, dans la lueur bleue, le cœur cognant comme un poing contre une porte, parce que pendant deux ans ce nom avait été une plaie que je rouvrais exprès, et voilà qu'il devenait un son que mon téléphone produisait, et les deux choses ne tenaient pas dans la même poitrine.
+La vérité, c'est que j'ai renversé un verre. La vérité, c'est que mes mains ont cessé de m'obéir une seconde. Le corps savait avant la tête.
 
-J'ai ramassé le verre d'abord. Je ne sais pas pourquoi. Une part animale en moi voulait que la pièce soit en ordre avant que je laisse le reste de ma vie s'effondrer.
+Je suis resté là, dans la lueur bleue des écrans. La seule lumière que je connaisse vraiment. Le cœur cognait comme un poing contre une porte. Pendant deux ans, ce nom avait été une plaie. Et voilà qu'il devenait un son. Les deux ne tenaient pas dans la même poitrine.
+
+J'ai ramassé le verre d'abord. Je ne sais pas pourquoi. Une part animale voulait la pièce en ordre avant que le reste s'effondre.
 
 Puis j'ai ouvert le message.
 
-Quatre mots, et puis plus rien.
+Le canal était chiffré, bien sûr. Avec Clara, tout l'était toujours. Pas une appli qu'on télécharge. L'un de ces tunnels qu'elle montait elle-même et démontait au matin. Ni trace, ni journal, ni cendre.
+
+Quatre mots, et plus rien.
 
 *Ils arrivent. Je suis désolée.*
 
-Et en dessous, là où une personne saine d'esprit aurait mis un cœur, un adieu, une explication, elle avait placé une suite de caractères. Une petite file de lettres et de chiffres, le genre de chose qui ne signifie rien pour personne au monde.
+En dessous, là où une personne saine aurait mis un cœur ou un adieu, elle avait posé une suite de caractères. Une petite file de lettres et de chiffres. Du charabia, pour qui ne savait pas regarder. Dix mille yeux seraient passés dessus sans ralentir.
 
-Sauf pour moi. Parce que Clara n'envoyait jamais rien par hasard. Clara pesait ses mots comme un chirurgien pèse une incision, comme un perceur de coffres mesure un déclic. Si elle vous envoyait du charabia, c'était la phrase la plus importante qu'elle eût jamais écrite, et votre vie entière consistait désormais à apprendre à la lire.
+Pas moi. Parce que Clara n'envoyait jamais rien par hasard. Elle pesait ses mots comme un perceur de coffres mesure un déclic. Si elle envoyait du charabia, c'était la phrase la plus importante qu'elle eût jamais écrite. Et ma vie, désormais, c'était d'apprendre à la lire.
 
 J'ai répondu vite. *Où es-tu. Parle-moi. Je suis là.*
 
-Les petites marques sous mon message ont viré au gris. Distribué. Pas lu.
+Les marques sous mon message ont viré au gris. Distribué. Pas lu.
 
 J'ai écrit encore. *Clara. Je suis là. Je n'ai jamais cessé d'être là.*
 
 Gris.
 
-J'ai appelé. Ça a sonné une fois — une seule sonnerie, le son le plus plein d'espoir et le plus terrible que j'aie jamais entendu — et puis ça n'a plus sonné. Pas de messagerie. Pas de tonalité d'occupé, d'indisponible, de hors de portée. Ça s'est simplement arrêté, comme s'arrête une bougie, comme s'arrête un cœur, comme s'arrête une porte que quelqu'un, de l'autre côté, ferme sur vous parce qu'il ne veut pas que vous suiviez.
+J'ai appelé. Ça a sonné une fois. Une seule fois. Le son le plus plein d'espoir et le plus terrible que j'aie entendu. Puis plus rien. Pas de messagerie. Pas de tonalité. Ça s'est arrêté, net. Comme une main qui enfonce un interrupteur. Comme une porte que quelqu'un, de l'autre côté, ferme sur vous.
 
 Elle avait disparu.
 
-Pas disparu comme elle l'était depuis deux ans, une douleur lente autour de laquelle j'avais bâti toute une vie prudente. Disparu comme on disparaît quand le sol s'ouvre sous vos pieds. Disparu en temps réel. Disparu sous mes yeux, avec un verre d'eau renversé qui s'étalait sur mon bureau comme une chose que j'aurais dû pouvoir arrêter.
+Pas disparu comme depuis deux ans. Pas cette douleur lente autour de laquelle j'avais bâti une vie prudente. Disparu comme quand le sol s'ouvre sous vos pieds. En temps réel. Sous mes yeux. Avec un verre d'eau renversé qui s'étalait sur mon bureau, comme une chose que j'aurais dû pouvoir arrêter.
 
 ---
 
-Laissez-moi vous dire qui j'étais, avant cette nuit, pour que vous compreniez ce que cette nuit a fait de moi.
+Il faut que je dise qui j'étais, avant cette nuit. Pour qu'on comprenne ce que cette nuit a fait de moi.
 
-J'étais un homme qui cassait les choses.
+J'étais un homme qui testait les limites de tout.
 
-Oh, j'aurais employé de plus jolis mots, autrefois. Un dénicheur de failles. Un essayeur de serrures. Quelqu'un capable de regarder la chose la plus jalousement gardée du monde et de voir, à l'instant, le seul petit endroit où elle avait menti sur sa sécurité. Pour de l'argent, parfois. Par principe, parfois — il y a beaucoup de menteurs ici-bas qui méritent qu'on éprouve leurs verrous. Et trop souvent, si je suis honnête, et à cette heure autant l'être, je le faisais pour qu'une femme me regarde comme Clara l'avait fait un jour.
+Autrefois, j'aurais choisi de plus jolis mots. Un dénicheur de failles. Un perceur de systèmes. Un hacker — le mot que tout le monde croit comprendre et que presque personne ne comprend. Quelqu'un capable de regarder la chose la mieux gardée du monde et de trouver, à l'instant, la seule porte qu'on croyait close. Le seul endroit où elle avait menti sur sa sécurité.
 
-C'était là le défaut. Je vais le nommer tout de suite et en finir, parce qu'elle l'aurait voulu. Quand je tombais amoureux, je tombais jusqu'au fond. Je perdais le fil de ma propre vie. Le travail n'importait plus, le plan n'importait plus, la chose habile et patiente que j'avais bâtie n'importait plus — seul le sentiment importait, sa grande chaleur noyante, et j'aurais tout abandonné pour un jour de plus à l'intérieur. Je l'avais fait encore et encore. J'avais laissé des merveilles à moitié achevées parce que quelqu'un m'avait souri à l'autre bout d'une pièce. J'étais l'homme qui n'arrivait jamais au bout de rien, parce que le milieu était toujours trop doux pour qu'on le quitte.
+Pour de l'argent, parfois. Par principe, parfois — il y a beaucoup de menteurs qui méritent qu'on éprouve leurs verrous. Et trop souvent, soyons honnête : pour qu'une femme me regarde comme Clara l'avait fait, un jour.
 
-Ceux qui m'aimaient finissaient par l'apprendre : j'étais une crue. Magnifique, peut-être, pour une saison. Et puis parti, et le champ sous l'eau, et rien à montrer qu'une trace de niveau haut sur le mur.
+C'était là le défaut. Je le nomme tout de suite. Elle l'aurait voulu.
 
-J'avais une famille, pourtant. Je veux que vous le sachiez, parce que cela compte plus que tout ce dont j'ai honte. Pas une famille de sang — celle-là, je l'avais épuisée depuis longtemps — mais une famille que je m'étais faite, personne après personne, à travers toute une planète de travers. Un homme à Lagos qui me garde la lumière allumée et s'inquiète comme une mère. Un serrurier à Marseille qui a essayé de me voler un jour et qui est aujourd'hui le plus brave ami que j'aie. Un fantôme à Kyiv qui ne fait confiance à rien, ce qui est exactement pourquoi je lui fais confiance. Et une femme à Tel-Aviv qui répond encore quand j'appelle, même maintenant, même après tout, parce qu'elle est plus bonne que je ne le mérite et parce qu'elle ne m'a jamais tout à fait lâché, et que je ne l'ai jamais tout à fait lâchée non plus, et c'est là une longue et triste histoire pour une autre nuit.
+Quand je tombais amoureux, je tombais jusqu'au fond. Je perdais le fil de ma propre vie. Le travail ne comptait plus. Le plan ne comptait plus. Tout ce que j'avais bâti, patiemment, ne comptait plus. Seul le sentiment comptait. Sa grande chaleur qui noie. J'aurais tout lâché pour un jour de plus à l'intérieur.
 
-Voilà qui j'étais. Une crue avec une famille. Un génie qui n'achevait rien. Un homme qui cassait les choses pour vivre et cassait les gens gratuitement, surtout en les aimant trop puis en oubliant de rester.
+Je l'avais fait, encore et encore. J'avais laissé des merveilles à moitié faites. Des chantiers béants. Parce que quelqu'un m'avait souri à l'autre bout d'une pièce. J'étais l'homme qui n'arrivait au bout de rien. Le milieu était toujours trop doux pour qu'on le quitte.
 
-Et puis il y avait Clara, la seule exception. La seule dont je ne me lassais pas. La seule qui ne se dissolvait pas dans le sentiment, parce qu'elle *était* le sentiment — exacte, courageuse, vraie jusqu'au fond. Elle disait que j'étais la seule personne qu'elle eût rencontrée qui prêtait attention aussi fort qu'elle. Elle n'en savait rien. Elle était la seule chose à laquelle j'avais jamais prêté attention sans que cela me coûte mon âme.
+Ceux qui m'aimaient finissaient par l'apprendre. J'étais une crue. Magnifique, peut-être, pour une saison. Et puis parti. Le champ sous l'eau. Rien d'autre qu'une trace haute sur le mur.
 
-Nous nous étions rencontrés trois ans plus tôt, dans une ville de désert pleine de menteurs et de lumières, à l'un de ces rassemblements où les gens comme nous font semblant d'être des inconnus. Je vous raconterai cette histoire comme il faut un jour. Pour l'instant, vous n'avez besoin de savoir qu'une seule chose, et il vous la faudra plus tard, alors retenez-la : il y avait une date. Un jour précis, dans un mois d'août précis, où deux êtres prudents qui ne se fiaient à personne s'étaient regardés à travers une pièce bruyante et trop éclairée, et avaient décidé, contre toutes les règles dont ils vivaient, de se fier à une seule personne chacun.
+J'avais une famille, pourtant. Deux, à vrai dire. Et c'est toute l'affaire.
 
-Personne d'autre ne connaissait cette date. Ni ses officiers traitants, ni ma famille, ni les rares fantômes qui nous connaissaient tous les deux. Elle était à nous. C'était le seul secret que nous n'avions jamais cédé, non parce qu'il était dangereux, mais parce qu'il était la seule chose que nous possédions ensemble, et on ne dépense pas la seule chose qu'on possède.
+Une vraie. Des parents. Un frère. Des neveux qui grandissaient sans moi. Des gens qui m'aimaient sans rien savoir de ce que je faisais dans le noir. Je leur avais montré un fils, un frère, un oncle. Je leur avais caché un masque. Je les avais tenus à distance pour les protéger. Ou par lâcheté. Ou les deux. Et je les avais à moitié usés, soyons honnête, à force d'absences et de bêtises.
 
-Je vous dis cela maintenant parce que c'est sur le point de compter.
+Moi, je n'avais personne à moi. Ni femme, ni enfant. Rien qui fût vraiment mien. J'étais l'oncle qui passe et repart. Le fils qu'on finit par cesser d'attendre.
+
+Et une autre famille. Celle que je m'étais faite, personne après personne, à travers une planète de travers. Des gens qui, comme moi, vivent dans les interstices. Entre les fuseaux, entre les frontières, entre la lumière des écrans et le noir des heures où personne ne devrait être réveillé. Des gens passés dans l'ombre et jamais tout à fait revenus.
+
+Un homme à Lagos qui me garde la lumière allumée. Il surveille mes serveurs comme on veille un malade. Il s'inquiète comme une mère.
+
+Un serrurier à Marseille qui a tenté de me voler, un jour, et qui est aujourd'hui mon ami le plus brave.
+
+Un fantôme à Kyiv qui ne fait confiance à rien. Il voit des micros dans les murs, des mouchards dans les câbles. C'est exactement pour ça que je lui fais confiance.
+
+Et une femme à Tel-Aviv qui répond encore quand j'appelle. Même maintenant. Même après tout. Parce qu'elle est meilleure que je ne le mérite. Elle ne m'a jamais tout à fait lâché. Et moi non plus. C'est une longue et triste histoire pour une autre nuit.
+
+Voilà qui j'étais. Une crue avec une famille. Un bidouilleur qui n'achevait rien. Un homme qui forçait les serrures du monde pour vivre, et brisait les gens gratuitement. Surtout en les aimant trop, puis en oubliant de rester.
+
+Et puis il y avait Clara. La seule exception. La seule dont je ne me lassais pas. La seule qui ne se dissolvait pas dans le sentiment. Parce qu'elle *était* le sentiment. Exacte. Courageuse. Vraie jusqu'au fond.
+
+Elle disait que j'étais la seule personne qu'elle eût rencontrée à prêter attention aussi fort qu'elle. Elle ne savait pas. Elle était la seule chose à laquelle j'avais jamais prêté attention sans y perdre mon âme.
+
+Nous nous étions rencontrés deux ans et demi plus tôt. Une ville de désert, tout en néons et en mirages. La grande convention annuelle des gens comme nous. La seule semaine de l'année où le monde souterrain remonte au grand jour.
+
+Des milliers de hackers, de chercheurs, de bricoleurs surdoués et de gens franchement dangereux. Descendus des quatre coins de la planète dans les salles surchauffées d'un hôtel-casino. Pour se parler, des jours durant, de la seule chose qui nous rassemble : comment les systèmes se brisent, et comment on les défend.
+
+On y vient apprendre. Frimer. Recruter. Espionner. On y monte sur scène pour révéler la faille qui fera trembler la moitié de l'industrie le lundi suivant. On y arrive sous un faux nom. On en repart sous un autre. On porte son pseudo comme d'autres un costume. La moitié des poignées de main cachent une enquête, l'autre moitié une dette. Et l'on ne donne jamais deux fois le même alias, de peur qu'on recolle les morceaux.
+
+C'est l'un des rares endroits au monde où l'on reconnaît une légende à la façon dont les voix baissent quand elle entre.
+
+Cette histoire-là, je me la raconterai un autre jour. Pour l'instant, une seule chose compte. Et elle comptera plus tard. Alors retenez-la : il y avait une date. Un jour précis. Un mois d'août précis. Où deux êtres prudents, qui ne se fiaient à personne, s'étaient regardés à travers une pièce trop éclairée. Et avaient décidé, contre toutes leurs règles, de se fier à une seule personne chacun.
+
+Personne d'autre ne connaissait cette date. Ni ses officiers traitants. Ni ma famille. Ni les rares fantômes qui nous connaissaient tous les deux. Elle ne vivait dans aucun fichier. Sur aucun disque. Dans aucun message qu'on aurait pu intercepter. Elle était à nous. Le seul secret que nous n'avions jamais cédé. Pas parce qu'il était dangereux. Parce qu'il était la seule chose que nous possédions ensemble. Et on ne dépense pas la seule chose qu'on possède.
+
+Je m'en souviens maintenant. Parce que c'est sur le point de compter.
 
 ---
 
-Je suis resté longtemps dans le noir après que la ligne s'est tue.
+Je suis resté longtemps dans le noir après que la ligne s'est tue. Seules les diodes des machines respiraient autour de moi. Un clignotement lent, indifférent. Comme des yeux qui auraient tout vu et n'auraient rien à dire.
 
-J'aimerais dire que je me suis jeté à l'action. J'aimerais vous offrir la légende. Mais ce qui s'est réellement passé, c'est que je suis resté assis sur une chaise dans un appartement glacé, à trembler, et quelque part là-dedans je crois que j'ai prié, ce que je ne fais pas, un Dieu avec qui je ne suis plus en bons termes, pour avoir tout mal lu. Pour qu'elle ait raccroché parce que sa batterie était morte. Pour que *ils arrivent* veuille dire un coursier, une livraison, une amie avec du vin. Pour que *je suis désolée* veuille dire désolée du silence de deux ans, et pas désolée comme on l'est quand on dit adieu.
+J'aimerais croire que je me suis jeté à l'action. J'aimerais m'offrir la légende. La vérité, c'est que je suis resté assis sur une chaise, dans un appartement glacé, à trembler. Et quelque part là-dedans, je crois que j'ai prié. Ce que je ne fais pas. Un Dieu avec qui je ne suis plus en bons termes. Pour avoir tout mal lu.
 
-Je savais à quoi m'en tenir. J'avais toujours su à quoi m'en tenir, avec Clara. C'était la cruauté d'aimer quelqu'un de plus intelligent que soi : on ne peut jamais se mentir longtemps à son sujet.
+Pour qu'elle ait raccroché parce que sa batterie était morte. Pour que *ils arrivent* veuille dire un coursier, une livraison, une amie avec du vin. Pour que *je suis désolée* veuille dire désolée du silence de deux ans. Et pas désolée comme on l'est quand on dit adieu.
 
-Elle avait des ennuis. Les vrais. Le genre qui efface les gens.
+Je savais à quoi m'en tenir. J'avais toujours su, avec Clara. C'était la cruauté d'aimer plus intelligent que soi : on ne peut jamais se mentir longtemps.
 
-Je savais, comme on connaît une odeur de l'enfance, la forme de ce qu'elle avait fait ces deux dernières années — le travail dans lequel elle s'était enterrée, la chose qui lui importait plus que sa propre respiration. Des enfants. Quelque part, dans la machinerie du monde, des enfants avançaient dans le noir à l'intérieur de caisses étiquetées *charité*, et Clara avait trouvé la couture, le seul petit endroit où le mal le plus jalousement gardé avait menti sur sa bonté. Elle me l'avait dit un jour, lors de la seule vraie dispute que nous ayons jamais eue, d'une voix qui ne laissait pas de place : *Quelqu'un doit protéger les enfants. Si ce ne sont pas ceux qui voient, alors qui ?*
+Elle avait des ennuis. Les vrais. Le genre qui efface les gens. Pas seulement leur corps. Leur trace, leurs comptes, leur nom. Jusqu'à la dernière ligne qui prouvait qu'ils avaient existé.
 
-Je lui avais dit que cela la ferait tuer.
+Je connaissais la forme de ce qu'elle avait fait ces deux dernières années. Comme on connaît une odeur d'enfance. Le travail dans lequel elle s'était enterrée. La chose qui comptait pour elle plus que sa propre respiration.
 
-Elle m'avait regardé de ces yeux gris exacts et avait dit : *Alors cela en aura valu la peine.*
+Des enfants. Quelque part, dans la machinerie du monde, des enfants avançaient dans le noir, à l'intérieur de caisses étiquetées *charité*. Clara avait trouvé la couture. Le seul endroit où le pire mal avait menti sur sa bonté. Elle avait suivi ça là où personne ne voulait regarder. Dans les recoins sans lumière du réseau. Sur ces marchés cachés du darknet où l'on vend tout ce qui ne devrait pas se vendre. Derrière des pseudos qu'on jette après usage, des forums qui changent d'adresse chaque semaine.
 
-Et je l'avais aimée si fort à cet instant, et j'avais eu si peur, que j'avais fait la chose la plus lâche et la plus brillante de toute ma lâche et brillante vie : je l'avais laissée partir. Je m'étais convaincu qu'aimer Clara, c'était ne pas l'entraîner dans ma crue. Qu'elle valait mieux sans un homme qui n'achevait jamais rien. Que mon éloignement était un cadeau.
+Elle me l'avait dit un jour. Notre seule vraie dispute. D'une voix qui ne laissait pas de place. *Quelqu'un doit protéger les enfants. Si ce ne sont pas ceux qui voient, alors qui ?*
 
-Ce n'était pas un cadeau. C'était juste la même vieille crue, sous un halo. J'étais parti, comme je partais toujours. Je m'étais simplement raconté une histoire plus noble à ce sujet.
+Je lui avais dit que ça la ferait tuer.
 
-Et maintenant son nom était gris sur mon écran, et une sonnerie unique s'était arrêtée, et quatre mots restaient là, à briller — *Ils arrivent. Je suis désolée* — et sous eux, cette petite file de charabia qu'elle avait envoyée exprès, parce que Clara n'envoyait jamais rien par hasard.
+Elle m'avait regardé de ces yeux gris exacts. Et elle avait dit : *Alors ça en aura valu la peine.*
+
+Je l'avais aimée si fort à cet instant. Et j'avais eu si peur. Que j'avais fait la chose la plus lâche et la plus brillante de ma lâche et brillante vie. Je l'avais laissée partir.
+
+Je m'étais convaincu qu'aimer Clara, c'était ne pas l'entraîner dans ma crue. Qu'elle valait mieux sans un homme qui n'achevait rien. Que mon éloignement était un cadeau.
+
+Ce n'était pas un cadeau. C'était la même vieille crue, sous un halo. J'étais parti, comme toujours. Je m'étais juste raconté une histoire plus noble.
+
+Et maintenant son nom était gris sur mon écran. Une sonnerie unique s'était arrêtée. Quatre mots restaient là, à briller — *Ils arrivent. Je suis désolée*. Et sous eux, cette petite file de charabia qu'elle avait envoyée exprès.
 
 Je l'ai regardée longtemps.
 
-Et quelque part dans ce regard, quelque chose en moi a changé de vitesse si brutalement que je l'ai senti jusque dans mes dents.
+Et quelque part dans ce regard, quelque chose en moi a changé de vitesse. Si brutalement que je l'ai senti jusque dans mes dents.
 
 ---
 
-Voici ce que personne n'a jamais compris à mon sujet, moi compris, avant cette nuit.
+Voici ce que personne n'a jamais compris à mon sujet. Moi compris. Avant cette nuit.
 
-Le défaut et le don étaient le même muscle.
+Mon défaut, c'était mon don. La même chose.
 
-Ce qui me dispersait — la totalité, la noyade, cette façon de perdre tout mon être dans un sentiment sans plus pouvoir penser à rien d'autre — n'était une malédiction que parce que je ne l'avais jamais, pas une seule fois, pointé vers une chose pour laquelle il valait la peine de ne pas survivre. J'avais passé ma vie à tomber jusqu'au fond pour des gens qui, en définitive, ne valaient pas la traversée à la nage. Et j'avais donc appris à appeler cela une faiblesse. Un schéma. Une raison pour que personne ne compte sur moi.
+J'aimais tout, jusqu'à me noyer. Mais je n'avais jamais aimé une chose qui valait la peine d'y rester. J'avais passé ma vie à tomber jusqu'au fond pour des gens qui ne valaient pas la traversée à la nage. Alors j'avais appelé ça une faiblesse. Un schéma. Une raison pour que personne ne compte sur moi.
 
-Mais ce n'est pas une faiblesse d'aimer complètement. Ce n'en est une que lorsqu'on aime quelque chose de petit.
+Mais ce n'est pas une faiblesse d'aimer complètement. Ça n'en est une que lorsqu'on aime quelque chose de petit.
 
 Et il n'y avait rien de petit là-dedans.
 
-Je me suis levé. Je m'en souviens. Je me souviens de m'être levé dans le noir comme un homme qui sort de l'eau, et je me souviens que mes mains avaient cessé de trembler, et je me souviens d'avoir pensé, très clairement, d'une voix qui ne ressemblait ni à mon apitoiement ni à mon ironie ni à aucune des autres voix avec lesquelles je discute d'ordinaire : *Je vais la retrouver. Je vais la retrouver même s'il me faut démonter le monde entier à mains nues.*
+Je me suis levé. Je m'en souviens. Comme un homme qui sort de l'eau. Mes mains avaient cessé de trembler. Et j'ai pensé, très clairement, d'une voix qui ne ressemblait à aucune de celles avec qui je discute d'ordinaire : *Je vais la retrouver. Même s'il me faut démonter le monde entier à mains nues.*
 
-Et alors une voix plus froide — la vieille voix, celle de mon ancienne vie — a répondu, douce et raisonnable : *Tu sais comment. Tu as toujours su comment. Tu n'as rien besoin de construire. Tu as des dettes. Tu as des fantômes. Tu as une douzaine de moyens sales d'en finir d'ici jeudi.*
+Alors une voix plus froide a répondu. La vieille voix. Celle de mon ancienne vie. Douce, raisonnable. *Tu sais comment. Tu as toujours su. Tu n'as rien à construire. Tu as des dettes. Tu as des fantômes. Tu connais les portes de derrière du monde et les gens qui les gardent. Tu as une douzaine de moyens sales d'en finir d'ici jeudi.*
 
-C'était vrai. J'aurais pu le faire à la manière sale. J'aurais pu commencer à casser des choses dès minuit, comme avant — atteindre les secrets du monde avec les vieux passe-partout, blesser des gens qui méritaient d'être blessés, redevenir, le temps d'une semaine de juste colère, exactement l'homme que j'avais été.
+C'était vrai. J'aurais pu le faire à la manière sale. Forcer des serrures dès minuit, comme avant. Descendre dans les couloirs noirs du réseau, là où je me déplaçais autrefois en maître chez les autres. Ce dédale de canaux planqués et de forums sans nom où chacun ment sur qui il est. Atteindre les secrets bien gardés avec les vieux passe-partout. Faire fuiter ce qui devait fuir. Forcer des coffres et en déverser le contenu en pleine lumière. Blesser des gens qui méritaient de l'être. Redevenir, le temps d'une semaine de juste colère, exactement l'homme que j'avais été. Un mot lâché dans la bonne oreille, sur le bon canal, et la moitié de ma vieille famille de l'ombre se serait réveillée pour moi.
 
 Et je l'aurais perdue.
 
-Je le savais comme on sait une vérité au ventre avant que la tête puisse la prouver. Si je partais à la recherche de Clara en homme qui casse les choses, je trouverais un corps, un coup monté, ou un piège. Ceux qui l'avaient prise n'allaient pas être vaincus par une crue. Ils allaient être vaincus par la *preuve*. Par quelque chose de si propre, de si indéniable, de si patient qu'aucune puissance sur terre ne pourrait l'écarter d'un revers de main. Clara avait passé deux ans à monter un dossier que personne ne pouvait détruire, contre des gens que personne ne pouvait toucher, et elle l'avait fait non pas avec une arme mais avec la vérité, assemblée si soigneusement qu'elle en devenait une sorte de lame.
+Je le savais comme on sait une vérité au ventre, avant que la tête puisse la prouver. Si je partais chercher Clara en homme qui force les portes, je trouverais un corps. Un coup monté. Un piège. Ceux qui l'avaient prise n'allaient pas être vaincus par une crue. Ils allaient être vaincus par la *preuve*.
 
-Si je voulais la sauver, je devais cesser d'être l'homme qui prenait les choses.
+Par quelque chose de si propre, de si patient, qu'aucune puissance sur terre ne pourrait l'écarter d'un revers de main. Clara avait passé deux ans à monter un dossier que personne ne pouvait détruire. Contre des gens que personne ne pouvait toucher. Et elle l'avait fait non pas avec une arme, mais avec la vérité. Assemblée pièce après pièce. Scellée si soigneusement qu'aucune main ne pourrait plus la falsifier. La vérité montée si serré qu'elle en devenait une lame.
+
+Si je voulais la sauver, je devais cesser d'être l'homme qui prend les choses.
 
 Je devais devenir un homme qui construit.
 
-Je n'avais pas ce qu'il me fallait. Alors je le fabriquerais. Je fabriquerais une chose qui n'avait jamais existé — une chose capable de tenir toute la machine pourrie dans ses mains sans ciller. Une chose capable d'écouter tout le bruit du monde et d'y trouver un silence qui sonnait comme elle. Je n'avais pas encore de nom pour elle. Je n'en avais pas encore une seule ligne. J'avais un appartement glacé, un verre renversé, un nom gris, et quatre mots.
+Je n'avais pas ce qu'il me fallait. Alors je le fabriquerais. Une chose qui n'avait jamais existé. Capable de tenir toute la machine pourrie dans ses mains sans ciller. Capable d'écouter tout le vacarme du monde et d'y dénicher un silence qui sonnait comme elle.
+
+Je n'avais pas de nom pour elle. Pas une seule ligne. J'avais un appartement glacé. Un verre renversé. Un nom gris. Et quatre mots.
 
 C'était assez.
 
-J'ai débarrassé mon bureau d'un seul bras — les papiers, le verre mort, tout le triste musée de l'homme derrière lequel je me cachais depuis deux ans, tout par terre. Je me suis assis. J'ai fait craquer mes doigts, ce qui est une chose stupide à faire, et je le savais, et je l'ai fait quand même, parce que certains rituels servent seulement à se dire que ça a commencé.
+J'ai débarrassé mon bureau d'un seul bras. Les papiers. Le verre mort. Les tasses de café froid à demi pleines. Tout le bazar de l'homme que j'avais joué pendant deux ans. Par terre. Je me suis assis devant les écrans. La page était vide. Le curseur clignotait dans le noir, patient. Comme un cœur qui attend une raison.
+
+J'ai fait craquer mes doigts. Une chose stupide, je le savais, et je l'ai faite quand même. Certains rituels servent seulement à se dire que ça a commencé.
 
 Et je me suis mis à construire.
 
-Je ne vous dirai pas comment. Vous ne le voudriez pas ; ce n'est pas ce genre d'histoire, et elle non plus ne l'aurait pas voulu. Tout ce que vous avez besoin de savoir, c'est ce que cela faisait, et c'était le contraire de la crue. Pour la première fois de ma vie, la totalité ne me dispersait pas. Elle me visait. Chaque chose folle, brillante et inutile que j'avais apprise dans une vie passée à forcer les serrures des autres se déversait par une seule porte étroite, et la porte portait son nom. Les heures filaient comme des minutes. La pluie cessait, reprenait, cessait. Quelque part, une cloche d'église a fait sa ronde et je ne l'ai pas entendue. J'ai oublié de manger, oublié d'avoir peur, oublié d'être l'homme qui n'achève jamais rien — parce que pour la première fois il existait une chose que je serais mort plutôt que de laisser inachevée.
+Le comment n'a pas d'importance. Pas ici. Pas dans cette histoire. Elle non plus ne l'aurait pas voulu. Tout ce qui compte, c'est ce que ça faisait. Et c'était le contraire de la crue.
 
-Je lui construisais un chemin de retour. Je ne savais pas encore que je construisais la chose pour laquelle, un jour, tout un monde caché se déchirerait. Je ne savais pas qu'elle survivrait à cette nuit, à cette femme, à cette guerre. Je savais seulement qu'il me restait sept jours, peut-être moins, avant que *ils arrivent* n'achève ce qu'il avait commencé, et que j'allais passer chacune de ces heures à rendre réelle la chose impossible.
+Pour la première fois de ma vie, la totalité ne me dispersait pas. Elle me visait. Tout ce que j'avais appris dans une vie passée à forcer les serrures des autres se déversait par une seule porte étroite. Et la porte portait son nom.
 
-Et c'est seulement quand la lumière grise est montée sur les toits mouillés que je me suis autorisé à revenir à la seule pièce que j'avais tournée et retournée toute la nuit en refusant de la regarder en face. La petite file de charabia au bas de son message. La chose qu'elle avait envoyée exprès, parce que Clara n'envoyait jamais rien par hasard.
+Les heures filaient comme des minutes. La pluie cessait, reprenait, cessait. Le café refroidissait sans que j'y touche. La pièce s'emplissait de l'odeur tiède des machines qui travaillent pendant que le monde dort. Ces nuits où l'on ne lève la tête de l'écran que pour vérifier, d'un réflexe de bête traquée, que personne ne regarde par-dessus l'épaule.
 
-J'avais supposé que c'était un nom. Un pseudonyme, un indicatif, le nom de celui qui venait pour elle. J'avais à demi bâti toute la nuit autour de la découverte de ce nom.
+Quelque part, une cloche d'église a sonné. Je ne l'ai pas entendue. J'ai oublié de manger. Oublié d'avoir peur. Oublié d'être l'homme qui n'achève rien. Parce que pour la première fois, il existait une chose que je serais mort plutôt que de laisser inachevée.
+
+Je lui construisais un chemin de retour.
+
+Je ne savais pas encore que je construisais la chose pour laquelle, un jour, tout un monde caché se déchirerait. Que d'autres, plus tard, la voudraient au point de tuer. Qu'on chuchoterait son existence sur les mêmes canaux où l'on avait jadis chuchoté mon nom. Je ne savais pas qu'elle survivrait à cette nuit, à cette femme, à cette guerre.
+
+Je savais seulement qu'il me restait sept jours. Peut-être moins. Avant que *ils arrivent* n'achève ce qu'il avait commencé. Et que j'allais passer chacune de ces heures à rendre réelle la chose impossible.
+
+Et c'est seulement quand la lumière grise est montée sur les toits mouillés que je me suis autorisé à revenir à la seule pièce que j'avais tournée et retournée toute la nuit en refusant de la regarder en face. La petite file de charabia au bas de son message. La chose qu'elle avait envoyée exprès.
+
+J'avais supposé que c'était un nom. Un pseudonyme. L'indicatif de celui qui venait pour elle. J'avais à demi bâti toute la nuit autour de la découverte de ce nom.
 
 Je me trompais.
 
-Ce n'était pas un nom du tout. C'était une serrure — une petite serrure parfaite et patiente, le genre que seule elle pouvait fabriquer et que seul moi pouvais ouvrir — et lorsque, enfin, les mains tremblantes, je lui ai posé l'unique question que deux êtres prudents s'étaient juré de ne jamais confier à âme qui vive, elle s'est ouverte.
+Ce n'était pas un nom du tout. C'était une serrure. Une petite serrure parfaite et patiente. Le genre que seule elle pouvait fabriquer, et que seul moi pouvais ouvrir. Et lorsque, enfin, les mains tremblantes, je lui ai posé l'unique question que deux êtres prudents s'étaient juré de ne jamais confier à âme qui vive, elle s'est ouverte.
 
 Le message n'était pas un nom. C'était une clé — et elle ouvrait sur une date que nous deux seuls avions jamais connue.

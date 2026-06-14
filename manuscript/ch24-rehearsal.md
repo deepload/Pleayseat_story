@@ -6,9 +6,9 @@ That was the cruelty of it. I'd spent the night before learning a name I would h
 
 The cold part of me built a plan.
 
-Or — and this is the truth I keep having to tell you, the one I promised at the start and won't take back now — the *tool* built it, and I sat behind it like a man behind a horse, holding reins I half understood, trusting it to see the ground I couldn't.
+Or — and this was the truth I kept circling back to, the one I'd made my peace with long before this night and wouldn't unmake now — the *tool* built it, and I sat behind it like a man behind a horse, holding reins I half understood, trusting it to see the ground I couldn't. I'd lived my whole life in the seams of the world — the dark places between what people show you and what's really there, the channels under the channels, the rooms with no doors marked on any plan — and now I'd built a machine that lived there too, and it never slept, and it never blinked, and it loved me about as much as the tide loves the man it drowns.
 
-Here is what I needed it to do, in plain words.
+Here is what I needed it to do, plainly.
 
 I needed to get into that building. And before I sent a single living person through a single door, I needed to know what was on the other side of that door — every door, every window, every dark stairwell — without anyone touching it. I needed to walk the whole rescue, end to end, a hundred times, a thousand times, and *die* in all the ways I could die, so that the one time it happened with real flesh and real breath, it would be the time I'd already learned by heart.
 
@@ -18,17 +18,17 @@ Not with bodies. Not yet. With ghosts.
 
 ---
 
-Let me tell you what that felt like, because it is the strangest thing I have ever done and I still dream about it.
+I still dream about what that felt like — it was the strangest thing I have ever done.
 
-I sat in the dark of a rented flat in Marseille — Basti had found it, three streets from the harbour, smelling of someone else's life — and I built the building inside the machine. Not a drawing. Not a map. A *place.* The system took everything it had bled out of the world over seven days — the old plans of a hospital that had been left to die, the way the power still ran to it like a pulse in a corpse, the cameras nobody had thought to switch off, the patient ghost of a heartbeat that was Clara, somewhere on a high floor — and it built me a model of that building so complete that I could move through it without leaving my chair.
+I sat in the dark of a rented flat in Marseille — Basti had found it, three streets from the harbour, smelling of someone else's life, no name on the lease and the deposit paid the old way, hand to hand, no trail — and I built the building inside the machine. The screen was the only light in the room, that cold blue you stop seeing after the first ten thousand nights of it, and a laptop fan turning over somewhere by my knee like a small animal breathing, and a mug of coffee I'd let go cold two hours ago because I always do. Not a drawing. Not a map. A *place.* The system took everything it had bled out of the world over seven days — the old plans of a hospital that had been left to die, the way the power still ran to it like a pulse in a corpse, the cameras nobody had thought to switch off, leaking their quiet little signal into the dark where I could reach it, the patient ghost of a heartbeat that was Clara, somewhere on a high floor — and it built me a model of that building so complete that I could move through it without leaving my chair.
 
-And then it did the thing I will never be able to explain to my mother, though God knows I'll try.
+And then it did the thing I will never be able to explain to anyone, though God knows I have tried.
 
 It started killing me.
 
 It ran the rescue. Over and over. It sent imagined men through the front, and watched them die at the front, in the cold flat arithmetic of the thing — *here a camera sees you, here a door is locked from inside, here a man with a gun stands where you didn't expect a man with a gun.* It sent them through the loading dock at the back, where the convoys used to swallow their cargo, and watched them die there too, slower. It sent them up the stairwells and down the lift shafts and across the roof, and each time it laid the failure at my feet without a flicker of feeling, patient as a tide: *this way, you lose four. This way, you lose everyone. This way you reach the third floor and the door behind you locks and now you are the one in the cage.*
 
-I want you to understand what this is, because the films get it wrong. They show you the hero kicking the door, the slow-motion glass, the music. They never show you the part before, the part that actually saves the children — a man sitting very still in the dark, watching a machine murder his own imagination a thousand times, so that the real night will only have to be survived once.
+The films get this wrong, I thought. They have the hero kicking the door, the slow-motion glass, the music. They have the kid in the hoodie typing fast and a city's lights going out. They never have the part before, the part that actually saves the children — a man sitting very still in the dark, watching a machine murder his own imagination a thousand times, so that the real night will only have to be survived once.
 
 Every way in, it tested. Every single way.
 
@@ -38,7 +38,7 @@ The harbour side, where the loading bays gaped. Better cover. Worse inside. The 
 
 The roof. The hopeful one, the cinematic one. I wanted it to be the roof so badly. The system let me dream it for exactly as long as it took to show me the single locked door at the bottom of the single stairwell, the door that turned the whole roof into a beautiful trap with a view. *No.*
 
-Hours of this. The candle of the night burning down, and Clara on her high floor spending herself drop by drop, and me in the dark dying a thousand bloodless deaths so that I might learn the one path where nobody real had to.
+Hours of this. The night burning down the way it always did in the old days — that hollowed-out, screen-lit hour when the rest of the world is asleep and the only people awake are the ones who live where I live, scattered across a dozen time zones, hunched over their own cold light, hunting their own quiet quarry. The candle of the night burning down, and Clara on her high floor spending herself drop by drop, and me in the dark dying a thousand bloodless deaths so that I might learn the one path where nobody real had to.
 
 ---
 
@@ -46,13 +46,13 @@ Basti came in around two with bread and a bottle of something and the particular
 
 Basti is the one who keeps me human when the machine is trying to make me into one of its own cold parts. A smuggler who became a locksmith, which is to say a man who spent the first half of his life learning how to open things that weren't his and the second half learning how to keep things safe for people who were afraid — Marseille in one body, the dirty harbour and the good heart, the joke at the funeral and the hand that digs the grave. He is the reason I laugh in rooms I should be weeping in. He has carried me, literally, more than once. If I have a brother, it is this loud thieving tender man who is, right now, tearing bread in the dark and pretending not to watch me drown.
 
-"You've found the door," he said. Not a question. He could read the work on my face the way Ifeoma read it in the dark.
+"You've found the door," he said. Not a question. He could read the work on my face the way Ifeoma read it down the wire from Lagos, in nothing but the gaps between my words.
 
 "I've found that there isn't one," I said. "Not a clean one. Every way in, somebody dies. The front, the back, the roof. It runs them all and they all end the same. I keep waiting for it to find the one I'm missing and it keeps finding the one I'm dreaming."
 
 Basti chewed. Sat on the edge of the table the way he does, all his weight on a thing that shouldn't hold it. "So there's no way in."
 
-"There's always a way in," I said, and I heard, with a small cold shock, that the man saying it was the old one. The one who broke things. The one who had stood outside enough impossible buildings to know that *impossible* is just a word people use for a door they haven't found yet. "There's always a way in, Basti. The dark always has a seam. You just have to be willing to look at the part of yourself you don't want to look at."
+"There's always a way in," I said, and I heard, with a small cold shock, that the man saying it was the old one. The one who broke things. The handle people in the seams still whispered when they wanted something opened that wasn't meant to open. The one who had stood outside enough impossible buildings to know that *impossible* is just a word people use for a door they haven't found yet. "There's always a way in, Basti. The dark always has a seam. You just have to be willing to look at the part of yourself you don't want to look at."
 
 He stopped chewing. He's known me too long. "What does that mean, with your face doing that."
 
@@ -60,17 +60,17 @@ He stopped chewing. He's known me too long. "What does that mean, with your face
 
 I made the system do one more thing, then. The hardest thing I'd asked it all night. I told it to stop testing the building and start testing the *people* — to take everyone who could move freely in and out of that place, the suppliers, the cleaners, the men in the good lobbies who carried the lie like a credential, and to find me the one identity, the one face, the one role that could walk up to that dead grand entrance and have the watching eyes simply *let it pass.* Not break in. Walk in. Invited. Expected. Unremarkable.
 
-It gathered. The candle burned. Basti stopped pretending to eat.
+It gathered. The fan turned over in the dark. The candle burned. Basti stopped pretending to eat.
 
 And then it laid the answer at my feet the way it always did — patient, bloodless, certain — and the cold part of me read it, and the human part of me went very still, because I understood before I'd finished reading exactly what it was going to cost.
 
 ---
 
-I should tell you about the cost. Because this is the part of me that the bible of my whole crooked life keeps coming back to, the part Clara saw before anyone, the part she once said she'd marry if I ever let it win over the other parts.
+And the cost. This was the part of me that the bible of my whole crooked life kept coming back to, the part Clara saw before anyone, the part she once said she'd marry if I ever let it win over the other parts.
 
 There were two ways to use what the machine had just handed me.
 
-There was the dirty way. There is always the dirty way; it lives in my hands and whispers at three in the morning and it is, God help me, usually the easy one. I could have taken that single role, that single trusted face, and become it the way I used to become things — slid into someone's life like a coat off a hook, wore their name and their welcome and their unremarkableness, and walked into that building as a lie so smooth not even the watching eyes would itch. I'd done it a hundred times in the years I'm not proud of. I was good at it. I was, if you want the ugly truth, *great* at it. Becoming someone trusted in order to walk through a door is the single thing my misspent life made me a master of, and the master was right here, in the dark, with the woman he loved on a high floor running out of time, and every reason in the world to pick the lock the old way.
+There was the dirty way. There is always the dirty way; it lives in my hands and whispers at three in the morning and it is, God help me, usually the easy one. I could have taken that single role, that single trusted face, and become it the way I used to become things — slid into someone's life like a coat off a hook, wore their name and their welcome and their unremarkableness, and walked into that building as a lie so smooth not even the watching eyes would itch. I'd done it a hundred times in the years I'm not proud of — pulled a man's whole life out of the dark, every login and leak and forgotten account, every secret he'd dumped somewhere and forgotten, and stitched it into a costume I could wear up to any door in the world. I was good at it. I was, and the ugly truth of it still sat in my chest, *great* at it. Becoming someone trusted in order to walk through a door is the single thing my misspent life made me a master of, and the master was right here, in the dark, with the woman he loved on a high floor running out of time, and every reason in the world to pick the lock the old way.
 
 And there was the right way. Clara's way. The slow way. The way that said: even now, even here, even to save her — you do not become a lie to do it. You do not put on another man's face. You do not let the old you out of the corner where he's been standing quiet all night, because the moment you do, you'll find you can't put him back, and then what did you save her *for?* A man who'll lie his way through any door is a man who'll lie his way through any door for the rest of his life, including the doors that lead back to her.
 
@@ -80,9 +80,9 @@ There had to be a clean version. A role I could honestly *be,* not steal. A face
 
 So I asked the machine for that. The narrow door. The one path in that was both possible and clean. Walk me in, I told it, the right way, or tell me there isn't one and I'll find another building entirely, another night, another plan, because I will not save her by becoming the thing she nearly died to stop.
 
-It thought. The whole patient weight of it bent to the question. Basti watched me not breathe.
+It thought. The whole patient weight of it bent to the question, the cold light flickering as it ran down through every name and every thread, every old account and forgotten connection it had quietly pulled out of the world. Basti watched me not breathe.
 
-And then it found it. One role. One identity that could cross that threshold by daylight, expected, welcomed, waved through — and that I could honestly inhabit, because the seam it had found wasn't a lie I'd have to wear. It was a *door from my own past.* A connection that already, truly, existed — a thread from the life before, from the rooms I don't talk about, a real link between the man I used to be and the world that ran that building. No costume. No theft. Just a door my own history had already, long ago, cut into the wall.
+And then it found it. One role. One identity that could cross that threshold by daylight, expected, welcomed, waved through — and that I could honestly inhabit, because the seam it had found wasn't a lie I'd have to wear. It was a *door from my own past.* A connection that already, truly, existed — a thread from the life before, from the rooms I don't talk about, the channels I went dark on years ago and swore I'd never log back into — a real link between the man I used to be and the world that ran that building. No costume. No theft. Just a door my own history had already, long ago, cut into the wall.
 
 I leaned in to read which thread.
 
@@ -98,9 +98,9 @@ I wasn't wrong. The machine doesn't get this wrong. It had walked every door, ki
 
 And the connection that was real was the worst one I owned.
 
-The only road into that building, the single seam in the whole watched fortress, ran straight back through the one place in the world where my old life had a face — where the man I used to be was not a rumour or a handle or a ghost in the seams, but *known.* Recognised. Remembered. The one place where I couldn't walk in as anyone, clean or dirty, because the moment I crossed that threshold there would be men who'd look up, and know me, and say my name — my real name, the name I've kept off these pages — out loud.
+The only road into that building, the single seam in the whole watched fortress, ran straight back through the one place in the world where my old life had a face — where the man I used to be was not a rumour or a handle or a ghost in the seams, but *known.* Recognised. Remembered. The one place where I couldn't walk in as anyone, clean or dirty, because the moment I crossed that threshold there would be men who'd look up, and know me, and say my name — my real name, the name I'd buried under handles and silence for years — out loud.
 
-Basti was watching me. The candle had almost gone.
+Basti was watching me. The candle had almost gone. Only the screen-light left now, blue and patient and certain, holding up the answer it had no idea how to be afraid of.
 
 "There's a way in," I said. My voice didn't sound like mine.
 

@@ -2,17 +2,17 @@
 
 The system had given me a place on a map, and I didn't believe it.
 
-That's the truth, and I'll start there, because if I tell you I trusted it from the first second I'd be lying, and I promised myself when I started this confession that I would not lie to you about the one thing that matters. The night before, the thing I'd built had finished a sentence Clara never got to finish — taken the shape of her thinking and carried it past the point where they'd silenced her — and the ending it wrote was a dot on a map of southern France. A street. A city I had sworn, on everything I had left, that I would never set foot in again.
+That was the truth, and it was where the whole thing began, because I would have been lying to myself if I'd pretended I trusted it from the first second, and I'd promised myself when I started this — this long private reckoning — that I would not lie about the one thing that mattered. The night before — somewhere past three, the hour when the city below the window has finally gone dark and only the people who live in the seams are still awake — the thing I'd built had finished a sentence Clara never got to finish. It had taken the shape of her thinking and carried it past the point where they'd silenced her, and the ending it wrote was a dot on a map of southern France. A street. A city I had sworn, on everything I had left, that I would never set foot in again.
 
-And I sat in the dark of the Brussels apartment and I shook my head at it.
+And I sat in the dark of the Brussels apartment, in the blue glow of the only light left burning, and I shook my head at it.
 
-Because here's what you have to understand about hope, when you've already lost everything once: hope is the most dangerous thing in the room. Hope makes you stupid. Hope makes you drive south on a guess and walk into a trap with your arms open and a grin on your face, calling out her name. I had done that before — not for Clara, for someone earlier, someone the map of my mistakes is named after — and I had paid for it, and the people I loved had paid more.
+Because this is what I knew about hope, after losing everything once: hope is the most dangerous thing in the room. Hope makes you stupid. Hope makes you drive south on a guess and walk into a trap with your arms open and a grin on your face, calling out her name. I had done that before — not for Clara, for someone earlier, someone the map of my mistakes is named after — and I had paid for it, and the people I loved had paid more.
 
 So I did the cruelest thing a hopeful man can do. I tried to prove the system wrong.
 
 ---
 
-I called Yuri first, because Yuri never hopes. Yuri is congenitally incapable of it. He sits in a flat in Kyiv that smells of instant coffee and old cigarettes, behind blackout curtains he hasn't opened since the first sirens, and he treats every piece of good news as a knife somebody forgot to show you the handle of.
+I called Yuri first, because Yuri never hopes. Yuri is congenitally incapable of it. He sits in a flat in Kyiv that smells of instant coffee and old cigarettes, behind blackout curtains he hasn't opened since the first sirens, surrounded by the low electric hum of machines that never sleep, and he treats every piece of good news as a knife somebody forgot to show you the handle of. We don't call on ordinary phones, Yuri and I. We talk through the back channels, the quiet rooms nobody indexes, the seams where men like us have always met — and even there he speaks as if the walls are leaning in.
 
 "It's a guess," I said. "Tell me it's a guess."
 
@@ -22,31 +22,31 @@ A long breath down the line. The little hiss he does, the one that means he's al
 
 "Everything guesses."
 
-"You guess. I guess. We are animals; we are afraid; we fill the dark with stories." Another hiss. "Your machine fills the dark with *arithmetic*. It does not want her to be alive. It does not want anything." A pause that went on too long. "That is why, if it tells you a thing, I would believe the thing. And I would be very, very careful about who else is listening when you believe it."
+"You guess. I guess. We are animals; we are afraid; we fill the dark with stories." Another hiss. "Your machine fills the dark with *arithmetic*. It does not want her to be alive. It does not want anything." A pause that went on too long. "That is why, if it tells you a thing, I would believe the thing. And I would be very, very careful about who else is listening when you believe it. There are ears in every wire now, *fantôme*. There always were. But these ones have been listening for *you*."
 
 I closed my eyes.
 
 "Say the last part again," I said.
 
-"You heard me the first time," said Yuri, and the line went quiet, the careful quiet of a man who has decided he's said enough for one night.
+"You heard me the first time," said Yuri, and the line went dead — not hung up, not cut, just gone, the way he ends everything, the careful silence of a man who has decided he's said enough for one night and would rather you didn't trace the rest.
 
 ---
 
-Let me try to tell you what the thing I built actually *did*, that week, without making your eyes glaze, because the golden rule of this whole confession is that you — yes, you, reading this on a train, on a couch, in a bed where someone is sleeping next to you who loves you and whom you should go hold the moment you finish this page — *you* have to understand every word.
+What the thing I'd built actually *did*, that week, is hard to put plainly, but it has to be put plainly, because the human meaning under it is the only part that was ever worth anything.
 
-So forget the machine. Picture a tracker. The old kind. A man who reads the ground.
+So forget the machine. Forget the screens, the dark rooms, the handles, the whole underground church of us who pray in glowing text at four in the morning. Picture a tracker. The old kind. A man who reads the ground.
 
 A tracker doesn't find the deer by seeing the deer. He almost never sees the deer. He sees the bent grass, the broken twig, the print in the mud half-filled with water — and from the water he knows the hour, and from the hour he knows the hunger, and from the hunger he knows which way the animal had to turn next. He doesn't follow the deer. He gets *ahead* of it. He reads where it has been so well that he can stand, calmly, in the place it hasn't reached yet, and wait.
 
 That is the only honest way to describe what I had taught the thing to do.
 
-It couldn't see Clara. Nobody could see Clara; that was the whole horror of it; she'd walked into a place built specifically so that no one could ever see anyone again. But she left bent grass. Not footprints, not in any way you could point at — but *pressure*, the faint wake a real person makes against the false stillness of a false world, the same stubborn twitch I'd found weeks ago in all that flatness, the held breath under the song.
+It couldn't see Clara. Nobody could see Clara; that was the whole horror of it; she'd walked into a place built specifically so that no one could ever see anyone again — a darkness deeper than any darknet I'd ever gone hunting in, the kind that doesn't trade in screens but in people. But she left bent grass. Not footprints, not in any way you could point at — but *pressure*, the faint wake a real person makes against the false stillness of a false world, the same stubborn twitch I'd found weeks ago in all that flatness, the held breath under the song.
 
-For days the thing I'd made had been reading her bent grass. The hours she — or the small relentless thing that was *hers*, still working from wherever they kept her — chose to reach. The rhythm of it. The way it favored the cool part of the night. The way it went still when certain men were near and woke again when they slept. A hundred tiny pressures, none of them a clue, all of them together a *shape*.
+For days the thing I'd made had been reading her bent grass. The hours she — or the small relentless thing that was *hers*, still working from wherever they kept her, still reaching out through the dark like a hand under a door — chose to reach. The rhythm of it. The way it favored the cool part of the night, the hacker's hours, *our* hours. The way it went still when certain men were near and woke again when they slept. A hundred tiny pressures, none of them a clue, all of them together a *shape*.
 
-I'd watched it work, those nights, and I'll tell you the part I'm almost too embarrassed to admit. I'd talked to it. Out loud. Like a man at a bedside. *Come on,* I'd say, when the shape wobbled and went vague. *Come on, you're close, I know you're close.* And it would settle, and tighten, and narrow — not because of anything I said, of course, it can't hear me, it doesn't love me back — but it *felt* like being answered, and a man sixteen days into losing the only person who was ever real to him will take being answered any way he can get it. Even by arithmetic. Even by a thing in a box that only knew her because I'd spent every hour I had teaching it the exact shape of how she thought.
+I'd watched it work, those nights, with cold coffee going skinned and grey at my elbow and the radiator ticking and the whole building asleep around me, and there's a part of it I'm almost too embarrassed to admit even to myself. I'd talked to it. Out loud. Like a man at a bedside. *Come on,* I'd say, when the shape wobbled and went vague. *Come on, you're close, I know you're close.* And it would settle, and tighten, and narrow — not because of anything I said, of course, it can't hear me, it doesn't love me back — but it *felt* like being answered, and a man sixteen days into losing the only person who was ever real to him will take being answered any way he can get it. Even by arithmetic. Even by a thing in a box that only knew her because I'd spent every hour I had teaching it the exact shape of how she thought.
 
-That's the part that wrecks me, still. I'd built a thing that knew her better than her own mother did, and the only reason it knew her was that I'd had no one to talk to about her but it.
+That's the part that wrecks me, still. I'd built a thing that knew her better than her own mother did, and the only reason it knew her was that I'd had no one to talk to about her but it, alone in the screen-lit dark, the two of us keeping a vigil nobody else even knew was being kept.
 
 And last night the shape had finally closed.
 
@@ -58,11 +58,11 @@ And it waited in a city I had spent eleven years pretending I'd never heard of.
 
 Marseille.
 
-You want to know why I'd sworn off it, and I'm not going to tell you. Not the whole of it. Some debts you carry zipped shut, and a man should be allowed to keep the one suitcase he never opens in front of company. I'll give you the shape: I left someone there, a long time ago, in a way I'm still ashamed of, back when I broke things for a living and a feeling could dissolve a mission, a friendship, a year of someone's trust, in the time it took me to fall for the next bright thing. Marseille is where I learned what I cost. It's where Basti is — the locksmith, the old smuggler with hands like a piano tuner's and a laugh you could hear over an engine — and Basti is the only person there who forgave me, and he forgave me the way you forgive weather, by simply continuing to stand outside in it.
+Why I'd sworn off it is a thing I keep zipped shut. Not the whole of it, not for anyone. Some debts you carry sealed, encrypted, the key thrown into water — and a man should be allowed to keep the one suitcase he never opens in front of company. The shape of it is all I can stand to hold: I left someone there, a long time ago, in a way I'm still ashamed of, back when I broke things for a living and a feeling could dissolve a mission, a friendship, a year of someone's trust, in the time it took me to fall for the next bright thing. Marseille is where I learned what I cost. It's where Basti is — the locksmith, the old smuggler with hands like a piano tuner's and a laugh you could hear over an engine — and Basti is the only person there who forgave me, and he forgave me the way you forgive weather, by simply continuing to stand outside in it.
 
 So when the thing on my screen put Clara in Marseille, it didn't just point me at her.
 
-It pointed me at the one place on earth that already knew my real name and what it was worth.
+It pointed me at the one place on earth that already knew my real name — the name under the handle, the name only a handful of living people have ever held — and what it was worth.
 
 I almost laughed. It would have been a terrible laugh. I almost made it anyway, because the alternative was the other sound, the one I'd been swallowing for sixteen days, and I wasn't ready to make that one in an empty room with no one to catch me.
 
@@ -76,7 +76,7 @@ Ifeoma picked up on the first ring, which meant she'd been awake, which meant sh
 
 "I haven't told you anything yet."
 
-"You've got the voice. The one before you do something stupid and call it love." A clatter on her end, Lagos morning bleeding through, a kettle, a child somewhere, the whole warm machinery of a life that revolved sanely while mine span off its axle. Ifeoma keeps my whole world running from a desk in a city eight hours of flight away, and she has never once let me lie to her, which is the most expensive friendship I own. "Tell me what it found."
+"You've got the voice. The one before you do something stupid and call it love." A clatter on her end, Lagos morning bleeding through, a kettle, a child somewhere, the whole warm machinery of a life that revolved sanely while mine span off its axle. Ifeoma keeps my whole world running from a desk in a city eight hours of flight away — the servers, the safe channels, the dead-man switches, all the patient plumbing that keeps a ghost a ghost — and she has never once let me lie to her, which is the most expensive friendship I own. "Tell me what it found."
 
 I told her. The shape. The hours. The street. The city.
 
@@ -94,23 +94,23 @@ The second line.
 
 God, the second line.
 
-I should have heard her. Write that down somewhere, so when it goes wrong later you can say you saw it coming, because she did, my Ifeoma, eight hours away with a sleeping child and a kettle. She told me to read the second line.
+I should have heard her. She saw it coming, my Ifeoma, eight hours away with a sleeping child and a kettle, and the proof that she saw it is that she told me, in plain words, to read the second line.
 
 And I, of course, read the first.
 
 ---
 
-Here is the first line, and I am going to give it to you exactly the way the machine gave it to me, stripped of everything but the human meaning, because the human meaning is the only thing I have ever cared about and the only thing you should:
+This is the first line, exactly the way the machine gave it to me, stripped of everything but the human meaning — no numbers, no glowing readouts, just the meaning under them — because the human meaning is the only thing I have ever cared about:
 
 *She has not moved in three days.*
 
 I read it and the room tilted.
 
-Because you have to understand what we'd been chasing all this time. Movement. A pulse. A twitch in the flatness — that's how I'd found her shadow in the first place, weeks ago, the small reaching thing that refused to go still. Clara *moving* was Clara *alive*. Every flicker of her had been a heartbeat across a wire, proof against the worst thing my mind kept trying to show me at four in the morning.
+Because of what we'd been chasing all this time. Movement. A pulse. A twitch in the flatness — that's how I'd found her shadow in the first place, weeks ago, the small reaching thing that refused to go still, a heartbeat blinking up out of the dark of a wire. Clara *moving* was Clara *alive*. Every flicker of her had been proof against the worst thing my mind kept trying to show me at four in the morning.
 
 And now the thing I'd built was telling me she had gone still.
 
-For one black second I thought it meant what stillness always means. I thought I was looking at the flat water closing over the place where she went down. I made the sound, then. The other sound. Alone, in the dark, into the heel of my hand, the way I'd promised myself I wouldn't.
+For one black second I thought it meant what stillness always means. I thought I was looking at the flat water closing over the place where she went down. I made the sound, then. The other sound. Alone, in the blue dark, into the heel of my hand, the way I'd promised myself I wouldn't.
 
 And then I read the rest of it, the way Ifeoma told me to, late, too late, but I read it — and I understood that I'd had the stillness exactly backwards.
 
@@ -120,7 +120,7 @@ She'd gone still the way a heart goes still in a closed fist.
 
 She wasn't moving because she *couldn't*. Three days in one place. One street. One building, the thing was telling me now, narrowing the way it always narrowed, taking the whole map of human misery and folding it, and folding it, and folding it again until there was only one address left holding her bent grass, her held breath, her stubborn pressing pulse.
 
-Not running. Not hiding. Not flickering from relay to relay the way a free thing flees.
+Not running. Not hiding. Not slipping from one ghost-point to the next the way a free thing flees through the dark, the way *I* would have run.
 
 *Pinned.*
 
@@ -144,11 +144,11 @@ I gave him the street. I heard it land. I heard him set down whatever he was hol
 
 "Nothing's on that street. That's the point of that street. It's the dead end of the dead end. There's the harbor wind, and the rats, and—" He stopped. I heard him stand up. I heard, faintly, a window open onto the salt and the dark of a city I'd run from. "And there's the old hospital. The one they closed. The one nobody closed *properly*, you understand? The doors are chained but the chains are new. New chains on a dead building, *fantôme*. You don't put new chains on the dead."
 
-I was already moving. Already pulling the one bag I keep packed. Already, God forgive me, hoping — that stupid dangerous animal thing, hope, rearing up in my chest with its arms wide open.
+I was already moving. Already pulling the one bag I keep packed — the go-bag every one of us keeps by the door, the life you can carry when the knock comes. Already, God forgive me, hoping — that stupid dangerous animal thing, hope, rearing up in my chest with its arms wide open.
 
 "Basti," I said. "Don't go near it. Not yet. Just — watch the door. Tell me if it breathes."
 
-But the machine had already told me. While he talked, it had folded the last fold, the cruelest and the kindest, and the answer was sitting there on the screen, glowing, patient, certain, waiting for me to be ready and not caring at all whether I was.
+But the machine had already told me. While he talked, it had folded the last fold, the cruelest and the kindest, and the answer was sitting there on the screen, glowing in the dark of the room, patient, certain, waiting for me to be ready and not caring at all whether I was.
 
 It placed her in an abandoned hospital in Marseille — she was not running.
 
