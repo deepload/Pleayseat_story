@@ -22,7 +22,14 @@ Quatre mots, et plus rien.
 
 *Ils arrivent. Je suis désolée.*
 
-En dessous, là où une personne saine aurait mis un cœur ou un adieu, elle avait posé une suite de caractères. Une petite file de lettres et de chiffres. Du charabia, pour qui ne savait pas regarder. Dix mille yeux seraient passés dessus sans ralentir.
+Et en dessous, là où une personne saine aurait mis un cœur ou un adieu, elle avait posé ceci :
+
+```
+7c4f0a91   e2d8b35f   a6e2c04b
+9f4a2c7e   8b015d3f   ——   δ
+```
+
+Une suite de lettres et de chiffres. Pour n'importe qui sur cette terre, ça ne voulait rien dire. Du charabia. Dix mille yeux seraient passés dessus sans même ralentir.
 
 Pas moi. Parce que Clara n'envoyait jamais rien par hasard. Elle pesait ses mots comme un perceur de coffres mesure un déclic. Si elle envoyait du charabia, c'était la phrase la plus importante qu'elle eût jamais écrite. Et ma vie, désormais, c'était d'apprendre à la lire.
 

@@ -180,6 +180,16 @@ J'étais déjà en mouvement. Déjà à attraper l'unique sac que je garde prêt
 
 Mais la machine me l'avait déjà dit. Pendant qu'il parlait, elle avait achevé le dernier pli. Le plus cruel et le plus doux. La réponse était là, sur l'écran. Lumineuse. Patiente. Certaine. Elle attendait que je sois prêt, sans se soucier de savoir si je l'étais.
 
+Sur la carte, des semaines de souffle retenu venaient de s'effondrer en un seul point. Il avait cessé de flotter. Il s'était posé. Il clignotait, là, sur une rue, et ne bougeait plus.
+
+```
+> TRIANGULATION CONVERGED  ·  σ ↓ 0.94
+  fix: 43.2951 N, 5.3699 E  —  LOCKED 72h
+  pulse: ALIVE   |   sig: δ
+```
+
+Pour n'importe qui, ça n'était que des chiffres. Une virgule, deux nombres, un clignotant vert. Pas moi. Ces chiffres-là, je les ai lus comme on lit un nom sur une porte. Une latitude, une longitude — une seule adresse au monde, prise dans le port de Marseille. Soixante-douze heures sans bouger d'un cheveu. Et, tout en bas, ce que je guettais depuis six jours, la seule ligne qui comptait : *vivante.* Et le petit δ au bout. Sa marque. La preuve que c'était bien elle, et pas un fantôme que mon chagrin avait inventé.
+
 Elle plaçait Clara dans un hôpital abandonné de Marseille — elle n'était pas en fuite.
 
 On la retenait.

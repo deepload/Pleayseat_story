@@ -83,7 +83,8 @@ em{ font-style:italic; } strong{ font-weight:600; }
 hr{ border:none; text-align:center; margin:7mm 0; }
 hr::after{ content:'\\2766'; color:var(--accent); font-size:13pt; letter-spacing:.4em; }
 blockquote{ font-style:italic; color:#444; border-left:2px solid var(--line); margin:5mm 4mm; padding-left:5mm; }
-pre{ display:none; }
+pre{ font-family:'Courier New','Consolas',monospace; font-size:10pt; text-align:center; color:#3a3a3a; background:#f1ede2; border:1px solid #d8d2c4; border-radius:5px; padding:8px 14px; margin:6mm auto; max-width:78%; letter-spacing:.08em; line-height:1.55; page-break-inside:avoid; }
+pre code{ font-family:inherit; color:inherit; font-style:normal; background:none; }
 """
 
 def build_html():

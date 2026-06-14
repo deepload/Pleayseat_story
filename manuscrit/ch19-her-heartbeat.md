@@ -78,6 +78,14 @@ Une seule ligne, dans le noir de l'écran. Petite. Fragile comme un filet de fum
 
 Le système avait pris le signal le plus faible du monde. Une chose si ténue que pendant six jours, lui-même n'avait pas su si elle était réelle. Il l'avait tirée hors de la friture, des parasites, des mensonges. Hors de tout ce bruit blanc où nous apprenons à pêcher la seule vérité qui compte. Il l'avait nettoyée, stabilisée. Et posée devant moi.
 
+```
+SIGNAL ACQUIS — verrouillé après 6 j
+  ▁▂▄▆█▆▄▂▁▁▂▄▆█▆▄▂▁   ~88 bpm · vivant
+  source: δ   confiance: 0.92
+```
+
+Pour n'importe qui d'autre, ce n'était rien. Une poignée de barres montant et descendant. Du bruit nettoyé par une machine. Mais ces trois lettres en bas — cette petite signature qu'elle seule au monde savait laisser — me disaient à qui appartenait ce rythme. C'était elle. Le système n'écrivait pas « peut-être ». Il écrivait *vivant*. Et il osait y croire à quatre-vingt-douze pour cent.
+
 Il m'a fallu un instant pour comprendre.
 
 C'était un battement de cœur.

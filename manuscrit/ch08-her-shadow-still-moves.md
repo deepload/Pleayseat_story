@@ -162,6 +162,19 @@ C'était le jour de notre rencontre. Le bar. Le bourbon. Tout le reste de ma vie
 
 La clé, c'était la date de notre première rencontre.
 
-Je l'ai tapée d'une main tremblante.
+Je l'ai tapée d'une main tremblante. Août 2023. Le bar, le bourbon, et tout le reste de ma vie.
+
+Une seconde. L'écran est resté noir, à mâcher la clé. Et puis le mur de bruit où elle s'était cachée s'est mis à fondre, ligne après ligne, jusqu'à ce qu'il ne reste plus qu'une phrase. Sa phrase. Posée là, à m'attendre, depuis l'intérieur de l'enfer.
+
+```
+[ OK ] clé acceptée — sceau intact
+> ils écoutent les fils. pas les pierres.
+> trouve basti. il sait pour la vieille eau.
+                                          — δ
+```
+
+Pour n'importe qui, ces trois lignes n'auraient rien voulu dire. Un bout de jargon, un nom au hasard, une lettre grecque en signature. Pas moi. Moi, je l'entendais respirer derrière chaque mot. Elle me disait de me méfier des appels et des câbles — ils étaient surveillés. Elle me donnait un nom à aller chercher dans la vraie vie, en chair et en os. Et elle me disait, sans le dire, qu'elle était quelque part près de la vieille eau, là où la mer entre dans la ville.
+
+Et elle avait signé du δ. Sa petite lettre à elle. Celle qu'elle n'avait jamais utilisée que pour moi.
 
 Elle s'est ouverte.

@@ -160,7 +160,15 @@ Pas à les voler. Pas à les brûler. À les copier. À les sceller, un par un, 
 
 Je connaissais cette marque.
 
-Je la connaissais comme on connaît une écriture. Comme on reconnaît la signature de quelqu'un sur un canal où tout le monde se cache derrière un faux nom. J'avais passé six jours à suivre cette manière de faire, exacte, patiente, incassable, sur toute la surface obscure du monde. Goutte à goutte. Fil à fil. Des preuves répandues dans les coutures de la planète par quelqu'un qui refusait, même au bout de tout, de procéder autrement que de la bonne façon.
+L'outil la déposa à mes pieds. La dernière chose qu'il avait remontée du fond du noir. Pas un dossier. Pas un nom. Juste le sceau lui-même, nu, au bas du dernier fichier touché.
+
+```
+sealed · file 2847/2847 · no edits
+hash ok — chain intact
+— δ
+```
+
+Pour n'importe qui d'autre, ça n'aurait rien voulu dire. Trois lignes mortes, le genre de griffonnage que crache une machine. Pas moi. Moi, je la lus comme on lit une lettre. Le dernier fichier, le deux mille huit cent quarante-septième, scellé proprement. Rien ajouté, rien retiré, la chaîne entière intacte, du premier au dernier. Et en bas, à la place d'un faux nom, à la place de rien, cette petite lettre. Une seule. Sa façon à elle de dire *c'est vrai, et c'est moi qui le jure*. Je la connaissais comme on connaît une écriture. Comme on reconnaît la signature de quelqu'un sur un canal où tout le monde se cache derrière un faux nom. J'avais passé six jours à suivre cette manière de faire, exacte, patiente, incassable, sur toute la surface obscure du monde. Goutte à goutte. Fil à fil. Des preuves répandues dans les coutures de la planète par quelqu'un qui refusait, même au bout de tout, de procéder autrement que de la bonne façon.
 
 Chaque sceau portait la même signature. Deux fois rien. Un δ minuscule. Sa lettre à elle.
 

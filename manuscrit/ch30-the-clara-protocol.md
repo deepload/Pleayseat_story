@@ -58,6 +58,14 @@ C'était la clé. Ça avait toujours été la clé. Elle me l'avait dit dès la 
 
 Je lui ai donné la date. Notre date.
 
+```
+> clé : aout 2023
+  scellé ouvert · signé δ
+  CLARA_PROTOCOL.complet ........ déverrouillé
+```
+
+Trois lignes sur l'écran. Pour n'importe qui, ça n'aurait rien voulu dire. Un mot, une date, un nom de fichier. Pas pour moi. Ces trois lignes-là, c'était une porte qui s'ouvrait après six nuits à pousser dessus. C'était elle qui me reconnaissait à travers le mur. Le petit *δ* en bas, sa signature, sa façon à elle de dire *c'est bien moi, et c'est bien toi qui es entré.* J'ai dû relire le mot « déverrouillé » trois fois avant d'y croire.
+
 Et le mur est tombé.
 
 ---

@@ -150,7 +150,20 @@ La pièce était de la mauvaise couleur. La couleur que prend une pièce quand l
 
 Elle avait fini sa phrase.
 
-J'ai traversé le sol sur des jambes qui ne semblaient pas les miennes. J'ai lu. Le souffle m'a quitté comme un coup de poing. Parce qu'elle ne m'avait pas donné *je t'aime.* Elle ne m'avait pas donné la chose que le romantique en moi suppliait d'entendre. Elle avait fait la chose plus froide. Plus vraie. Plus *Clara.* Elle avait pensé comme elle jusqu'au bout. Par-delà l'amour. Jusqu'à l'endroit où elle plaçait les enfants avant tout. Même avant l'adieu.
+Sur l'écran, dans cette police machine qui ne sait pas trembler, six lignes. La grammaire de Clara recrachée, exacte, comme si elle l'avait tapée elle-même.
+
+```
+> achève_comme_elle()
+  premier_chiffre : 14   (le leurre, dit tout haut)
+  second_chiffre  : 41   (le vrai, mérité)
+  paire : { vieux_port, "près de la vieille eau" }
+  les_47 d'abord. toujours. même avant l'adieu.
+  — δ
+```
+
+Pour n'importe qui, ça n'aurait été qu'une bouillie de chiffres et de signes. Une machine qui se parle à elle-même dans le noir. Pas pour moi. Je voyais ce que ça voulait dire, et ce que ça voulait dire m'a coupé les jambes. Elle avait laissé sa paire, comme toujours — une fausse et une vraie. Elle avait dit son chiffre tout haut, et caché le seul qui comptait juste derrière. Et elle avait signé du δ. Sa petite marque. Pas une machine qui imite. Clara, par-dessus mon épaule, deux ans après son silence, me tendant la chose dans la seule langue qu'elle tenait pour honnête. Et au milieu, comme une gifle, ce qu'elle plaçait avant moi, avant l'adieu, avant tout : les enfants.
+
+J'ai traversé le sol sur des jambes qui ne semblaient pas les miennes. J'ai lu encore. Le souffle m'a quitté comme un coup de poing. Parce qu'elle ne m'avait pas donné *je t'aime.* Elle ne m'avait pas donné la chose que le romantique en moi suppliait d'entendre. Elle avait fait la chose plus froide. Plus vraie. Plus *Clara.* Elle avait pensé comme elle jusqu'au bout. Par-delà l'amour. Jusqu'à l'endroit où elle plaçait les enfants avant tout. Même avant l'adieu.
 
 Elle avait achevé une phrase que Clara n'avait jamais eu le temps de finir.
 

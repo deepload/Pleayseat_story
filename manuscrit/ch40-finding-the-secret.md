@@ -134,7 +134,14 @@ Et il était là. Bien sûr qu'il était là. Elle avait su que je viendrais à 
 
 Elle m'avait dessiné un plan depuis sa propre captivité. Elle avait été *dans* ce bâtiment. Dans son noir. Mourant pouce par pouce. Et elle avait dépensé une part de ses dernières forces à faire en sorte que, quand je descendrais enfin ces marches, je les descende en y voyant.
 
-J'ai trouvé la pièce où elle était. Elle l'avait marquée. Bien sûr. Une petite chose, dans le coin de tout ce vaste et terrible diagramme. Un signe tranquille de sa petite main ferme. Le δ dont elle signait toujours. Posé sur une seule pièce, entre toutes. Comme pour dire : *ici. C'est là que je serai. Viens droit à moi.*
+J'ai trouvé la pièce où elle était. Elle l'avait marquée. Bien sûr. Une petite chose, dans le coin de tout ce vaste et terrible diagramme. Un signe tranquille de sa petite main ferme. Le δ dont elle signait toujours. Posé sur une seule pièce, entre toutes.
+
+```
+SUB-2 · cell 6 · "ici. viens droit à moi"
+                                       — δ
+```
+
+Pour n'importe qui, ces trois mots et cette lettre n'auraient été qu'un griffonnage perdu dans un plan illisible. Le coin oublié d'un schéma que personne ne saurait lire. Pas moi. Moi, je savais que c'était une femme, seule dans le noir, en train de me dire où la trouver. Une chambre marquée d'une croix par sa propre main, depuis l'intérieur de sa prison. *Ici. C'est là que je serai. Viens droit à moi.*
 
 J'ai posé mon doigt. Sur l'écran. Sur elle.
 

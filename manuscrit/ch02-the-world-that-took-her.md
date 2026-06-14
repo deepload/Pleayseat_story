@@ -66,6 +66,15 @@ Elle avait choisi les mots avec sa précision habituelle. *Mercy*, la miséricor
 
 Des enfants inscrits sur un registre dans un pays. Effacés de tout registre dans le suivant. De l'argent qui arrivait propre et repartait plus propre encore, rincé dans une cascade de faux dons, là où la générosité et le blanchiment ont le même visage. Et quelques personnes de bien qui posaient une question de trop. Et puis, malheureusement, prenaient une retraite anticipée dans un pays sans extradition.
 
+Clara avait recopié une de leurs annonces. Telle quelle. Arrachée à un coin du net où l'on vend ce genre de marchandise comme on solde des vélos d'occasion. Quelques mots gris sur fond noir.
+
+```
+[LOT-7] cargaison fraîche · 6 unités · origine vérifiée
+acheminement: corridor sud · escrow ouvert · 0 trace, 0 retour
+```
+
+J'ai dû relire pour comprendre. Et le comprendre m'a fait poser la main sur la table, comme si la pièce penchait. *Cargaison.* *Unités.* Ils ne parlaient pas de cartons. Ils parlaient d'enfants. Six. Vendus en gros, à des inconnus, par des gens qui avaient pris soin d'écrire *zéro retour* — pour rassurer l'acheteur. Aucune photo. Aucun nom. Juste la propreté froide de quelqu'un qui n'a jamais eu à regarder ce qu'il vendait.
+
 Ce n'était pas un gang. Un gang, on l'attrape. C'était une *structure*. Patiente. Dispersée. Tissée dans de vraies institutions comme une pourriture dans du bon bois. Il y avait ceux qui déplaçaient les enfants. Il y avait ceux qui déplaçaient l'argent si bien que ça ressemblait à de la générosité. Et au-dessus, écrivait-elle, une main. Elle en voyait l'ombre, jamais les doigts. Quelqu'un de protégé. Quelqu'un capable de faire qu'un dossier de police national cesse d'exister. Quelqu'un dont elle n'avait pas encore réussi à traîner le nom jusqu'à la lumière.
 
 C'est cette partie-là qui m'a glacé le sang. Pas la cruauté. La *protection.* Clara avait passé deux ans à monter un dossier contre des gens capables, d'un coup de fil, de briser la carrière ou la vie de quiconque les attaquait. Et elle avait décidé de les attaquer quand même.
