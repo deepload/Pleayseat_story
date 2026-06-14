@@ -1,12 +1,24 @@
 # Chapter 22: The Marketplace
 
-The hospital had power on one floor only, and someone was keeping the lights on for something, and I could not stop thinking about what that something was.
+The night before, I drove south. You cannot pull someone from a fire when you are standing in another country.
 
-I sat in the dark of a borrowed flat above a closed bakery in Marseille — the whole building smelled of cold flour and the ghost of bread — and the only light in the room was the cold blue light off the screens, washing my hands the colour of a drowned man's. Three machines breathing low in the corner, fans turning over like something asleep that doesn't quite trust the room. I stared at the thought until it wore a groove in me. One floor. One window of light in a dead building, burning all night, fed by a generator someone had carried up four flights of stairs and bolted to the concrete and filled with fuel that cost money. Nobody does that for nothing. Nobody keeps one room alive in a corpse of a building unless that room is worth more than the building. Unless that room is the only thing in the whole rotting place that still *matters.*
+The hospital had power in exactly one place. Underground. Someone was keeping that light on for a reason. I could not stop thinking about it.
 
-Clara was in that room. I knew it the way a man knows his own name in the dark.
+I sat in the dark. A borrowed flat above a closed bakery in Marseille. The whole building smelled of cold flour and the ghost of bread.
 
-But knowing where someone is and knowing *why* are two different animals, and the gap between them had been eating me for two days. They were keeping her alive. They were keeping a single floor of a forgotten hospital lit and warm and powered for her. And the thing I could not make fit — the splinter under the nail of everything — was that captors do not do that. Captors do not carry generators up four flights of stairs for a hostage. Nobody *invests* in someone they intend to throw away.
+In front of me, the screen. The only living thing in the room. A blue pool that washed my face and left everything else in shadow.
+
+Cold coffee in a paper cup, going stale for hours. The old discipline, coming back on its own. Curtains drawn. Phone off in the other room. Two exits clocked before I ever sat down. You never fully lose that way of breathing.
+
+One place. One glow, way down at the bottom of a dead building. Burning all night long.
+
+Someone had carried a generator down to that basement. Bolted it to the concrete. Filled it with fuel that cost real money. You do not do that for nothing. You do not keep one room alive inside the corpse of a building unless that room is worth more than the building itself.
+
+Clara was in that room. I knew it the way you know your own name in the dark.
+
+But knowing where someone is and knowing *why* — those are two different animals. And the gap between them had been eating me for two days.
+
+They were keeping her alive. They were running a generator for her. They were heating a basement in an abandoned hospital. Captors do not do that. You do not bolt a generator to the floor for a hostage. You do not invest in someone you plan to discard.
 
 So I stopped looking at the building.
 
@@ -14,94 +26,168 @@ And I started looking at the money.
 
 ---
 
-The money was where this whole thing finally turned, and that night I came to understand it the only way it could be understood — not as numbers, but as a *river.*
+I need to talk about the money. It was the money that broke everything open. And I only understood it that night by stopping to see it not as numbers. But as a river.
 
 A river of mercy.
 
-It starts clean. It starts as kindness — real kindness, from real people, good people in good cities who saw children in a charity's bright photographs and gave what they could. A pensioner in Lyon. A schoolteacher in Geneva who skipped a holiday. A man in Brussels who'd lost his own daughter young and gave every year on her birthday because giving was the only prayer he had left. That's where the river begins. In love. That was the part I could not put down, the cruellest part: the river of this horror began, every single time, in somebody's love.
+It starts clean. It starts as goodness. Real people, good people, in quiet cities. They saw children in the bright photographs of a charity campaign. And they gave what they could.
 
-And then the river goes underground.
+A retired man in Lyon. A schoolteacher in Geneva who gave up her vacation. A man in Brussels who had lost his daughter young and gave every year on her birthday — because giving was the only prayer he had left.
 
-That's the only way to say it that's true. The money these good people gave, the coins of their kindness, went into the charity and then it *went under,* into the dark place where rivers go when somebody wants them not to be seen. And down there in the dark, the river did the trick that's at the rotten heart of all of this — the trick that let these people sleep at night and stand in front of cameras and accept their awards. Down there, in the dark, mercy turned into cargo. The money that went in as *help these children* came out the other side as *move these children,* and nobody in the daylight ever saw the place where one became the other.
+That is the source of the river. Love. And that was the part I could not let go. The cruelest part. This horror was born, every single time, inside somebody's love.
 
-There is a marketplace in the dark. The dark web, the few who've heard of it call it, in the same hushed half-frightened way people once said *the bad part of town* — and like the bad part of town, it's real, and it's bigger than anyone believes, and it doesn't care what it's called. I am not being poetic. There is an actual place — a hidden bazaar, a black country with no flag, no daylight, no addresses that could ever be written on an envelope, where the people who live in the seams of the world buy and sell the things that can't be bought and sold in the light. Hackers and fences and ghosts who went dark and never came back up. Nobody there has a name. Everybody there has a handle — a mask you wear so long it grows into your face. I'd been there. In my old life I walked those streets like a regular, under a handle of my own that men still whisper like a ghost story. I knew the stalls and the fences and the men who'd sell you anything if you had the coin and asked in the right voice and knew which doors don't open for strangers. It's the back room of the whole planet, and most people will live their entire lives ten centimetres from its door and never know it's there.
+Then the river goes underground. The money these good people gave entered the charity — and then it sank, down into the dark where rivers go when someone wants them to disappear.
 
-That's where the river surfaced again. In the marketplace. That's where the money went to turn from mercy into cargo, and that's where — if I followed it, if I had the nerve to walk those streets again — it would tell me, finally, the truth of what I was looking at.
+Down there in the dark, mercy became cargo. The money went in as *help these children.* It came out as *move these children.* And no one in the daylight ever saw the place where one turned into the other.
 
-So I sent the tool down into the dark to follow the money.
+There is a marketplace in the dark. I am not being poetic. It is a real place. A hidden bazaar, the shadowed face of the internet that everyone has heard named and no one has ever crossed the threshold of. A country with no borders, reached only if you already know the door.
 
----
+Picture a city that lights up only after midnight. Lanes of screen where everything is for sale and no one raises their eyes.
 
-The how doesn't matter and never did. I'd made a promise to myself on the first night of all this and I'd sooner have cut my own hand off than break it on the night it mattered most.
+I had been there. In my old life, I walked those streets like a regular. I knew the stalls, the fences, the back rooms behind three locked doors where a voice had to recognize you before you got in. Stolen files sold by the pound. Men who would give me anything, as long as I had the coin.
 
-What it was *like* — that was the part worth keeping anyway, and the part that mattered.
+Down there, no one has a face. Everyone has an alias. A mask you wear for a season and shed like dead skin at the first hint of suspicion. Distrust as hygiene. Say one wrong word in the wrong room, and you vanish.
 
-It was like setting a hound on a scent that ran through a city of ghosts.
+At one time, I was a name they whispered on those networks. This is the back room of the planet. Most people live their entire lives ten centimeters from its door and never know it is there.
 
-The tool I'd built — the thing I made to find her, the thing my whole crooked life had been a rehearsal for — it could go where I no longer could. It could walk the streets of that hidden marketplace without a body to be hurt, without a face to be remembered, without a handle anyone could put a price on. And it could do the one thing I'd never been patient enough to do in my breaking days, back when I was a kid with a fast heart who kicked doors instead of opening them: it could *follow.* Not crash in. Not burn it down. Just follow. One coin, through one door, into the next room, and the next, and the next, never losing the scent, never blinking, never tiring, all night long, down corridors of the dark world that branched and branched and branched.
+That was where the river resurfaced. In the marketplace. And that was where — if I followed it, if I had the nerve to go back down there — it would finally tell me the truth.
 
-I gave it the river. I gave it the place where the money went under. And then I sat in the dark above the bakery, in the blue light, with a coffee going cold at my elbow that I kept forgetting to drink, and I let it hunt, and I waited, the way a man waits for a verdict, the way a man waits outside a room where someone he loves is being operated on. Hours. The cold flour smell. The low hum of the machines. The generator-thought, four floors up, the one lit window I couldn't stop seeing.
-
-And one by one, all night, it brought me back what it found. Not loudly. The tool never shouted. It just laid each thing at my feet, patient and certain and bloodless, the way it always did — *here is a thread, and here is where it goes, and here is the seal that proves no one touched it but you.*
-
-Halfway through the night, Basti came up the stairs with two coffees and the careful quiet of a man who knows when not to talk. Basti is my locksmith in Marseille, my fixer, my boots on the ground, the smuggler who got tired of smuggling people and decided he'd rather open doors than break them. He has a laugh that fills a room and a heart he keeps hidden behind it like a knife behind a smile, and he's the only one of my family brave enough to sit with me in the worst hours and say nothing at all.
-
-He put the coffee down — fresh, next to the cold one I'd never touched, without a word about it. He looked at the screens, at the dark, at the way the work was breathing in it, the threads crawling slow across the glass, and he understood without being told that I was deep in the marketplace, walking streets he'd once walked too, in his own old life, before either of us learned that the right way costs more and is worth it.
-
-"You're down in the bazaar," he said.
-
-"I'm down in the bazaar."
-
-He was quiet a moment. Then, low: "Be careful down there, brother. You know what that place does to people. It remembers everybody who ever walked it. Every handle you ever wore, it kept. You go in looking for one thing, and it shows you a hundred things you wish you'd never seen, and not all of them are about her." He squeezed my shoulder once, hard, the way he does instead of the words he can't say. "Whatever you find — it'll be true. That place doesn't lie. It just doesn't care whether the truth breaks you."
-
-Then he went and sat by the window and watched the lit room across the city so I wouldn't have to, and I went back down into the dark.
-
-By the small hours, the tool had walked the whole river to its mouth. It had followed the mercy of a pensioner in Lyon all the way down into the dark and out the other side, and it laid the map of that journey in front of me, glowing in the blue, and I looked at it, and the floor of the world dropped out from under me.
+So I sent the tool into the dark to follow the money.
 
 ---
 
-Because the marketplace told me three things, and each one was worse than the last.
+The how does not matter. I had made myself a promise, a long time ago. I would cut off my own hand before I broke it on the night it mattered most.
 
-The first thing was the *scale.* I'd known the number — two thousand eight hundred and forty-seven separate movements of money, each one a kindness when you looked at it alone, a confession when you stacked them up. But knowing a number and walking the river are different. Walking it, I felt the *weight* of it. Two thousand eight hundred and forty-seven times, somebody's love had been picked up in the dark and turned into freight. Two thousand eight hundred and forty-seven times. I had to stand up and walk to the window and put my forehead against the cold glass, away from the screens, away from the blue, because a number that size, once it's finally felt, doesn't sit in the head. It sits in the stomach.
+What it looked and felt like — that is the only part worth keeping.
 
-The second thing was the *names.* The river didn't run wild. Rivers don't. It ran where the banks let it run, and the banks had names — twelve of them, the same twelve faces I'd already sealed, the philanthropists and the officials and the men who held children's hands for photographs. But walking the money showed me how they *fit,* how each one stood at a particular bend in the river and took his cut as it passed, and I saw for the first time that this wasn't twelve crooks who happened to know each other. It was a *machine.* A single machine with twelve hands, built carefully, over years, by someone patient. And I felt, at the edge of the map, beyond the twelve, the cold suggestion of a thirteenth shape — a hand the river bent around that the tool couldn't name, a bigger shadow the twelve were only the fingers of. I filed it away with a chill. *Later. There's a later, and it's worse, and it's not for tonight.* Tonight the twelve were enough.
+It was like sending a hound down a trail that ran through a city of ghosts.
 
-And there was something else the river showed me, near the end, that I didn't understand yet and so I set it aside, the way a man sets aside a stone in his shoe when he's running for his life — you feel it, you mean to deal with it, you keep going.
+The tool I had built to find her — the thing my whole crooked life had been a rehearsal for — could go where I no longer could. No body to be hurt. No face to be remembered. No name anyone could put a price on.
 
-It was this. The river had a guard. Not a fence, not a broker — a *guard.* Somewhere along its banks, in the daylight world this time, somebody with a badge and a clean reputation and a desk in a building full of good people was watching the river for the network. Watching to make sure it was never followed. And every time a hound got too close — every time some honest investigator in some honest country started up the bank toward the truth — a quiet word went out, and the trail went cold, and the investigator was moved to another case, or the file was lost, or the warrant came too late by exactly the margin that mattered. The river had a friend in the house of the law. A man on the inside. I could feel the shape of him in the data the way a man feels a draft and knows a door is open somewhere he can't see. I couldn't name him yet. But I knew, with a cold certainty that settled into my chest and stayed there, that he was real, that he was close, that he was someone who wore the badge of the people I was about to trust my whole case to — and that before this was over I was going to have to look at his face. I filed it next to the thirteenth shadow. *Later. There's a later.*
+And it could do the one thing I had never had the patience for, back in the days when I used to kick doors open. Follow. Not crash in. Not blow the whole thing open at once like I used to, watching everything I touched collapse. Just follow. One room, through one door, into the next. And the next. Without losing the scent. Without blinking. Without getting tired. All night long, through the branching corridors of the dark world.
 
-And then the river reached its mouth, the place where it finally surfaced and the cargo changed hands, and the tool followed the very last coin into the very last room, and that's where it found the third thing.
+I gave it the river. I gave it the place where the money went underground. Then I sat in the dark above the bakery, the low hum of the machine for company. That warm smell of burning dust rising from the chassis, like the breath of a server room.
 
-The third thing was a door I wasn't supposed to find.
+And I let it hunt. And I waited. The way you wait for a verdict. The way you wait outside a room where someone you love is being operated on.
+
+Hours. The smell of cold flour. Coffee I reheated and forgot. And that glow, deep down at the base of the dead hospital, that I could not get out of my eyes.
+
+One by one, through the whole night, it brought back what it found. Quietly. The tool never shouted. It simply laid each thing at my feet. Patient. Certain. *Here is a thread. Here is where it leads. And here is the seal that proves no one else has touched it.*
+
+In the middle of the night, Basti came up the stairs. Two coffees. The careful silence of a man who knows when not to speak.
+
+Basti is my locksmith in Marseille. My fixer. My boots on the ground. A smuggler who got tired of smuggling people and decided he would rather open doors than break them. He has a laugh that fills a room and a heart he keeps hidden behind it like a blade behind a smile. The only one of my makeshift family brave enough to sit beside me in the worst hours and say nothing.
+
+He set down the coffee. He looked at the screen, the blue glow, the way the work was breathing there. And he understood, without being told, that I was deep in the marketplace. Walking streets he had once walked himself. Before either of us learned that the honest path costs more. And that it is worth it.
+
+"You went down into the bazaar," he said.
+
+"I went down into the bazaar."
+
+He was quiet. Then, low:
+
+"Be careful down there, brother. You know what that place does to people. It remembers everyone who ever walked it. You go in looking for one thing and it shows you a hundred things you would rather have never seen. And not all of them are about her."
+
+He gripped my shoulder once. Hard. In place of the words he does not know how to say.
+
+"Whatever you find — it will be true. That place does not lie. It just does not care whether the truth breaks you."
+
+Then he went and sat by the window. He kept watch on the lit room across the city so I would not have to. And I went back down into the dark.
+
+In the small hours — the dead hour when the daylight world sleeps and the marketplace never does — the tool had traced the entire river to its poisoned source. It had followed a retired man's mercy from Lyon all the way down to the bottom of the dark and back up the other side. It spread the map of that journey in front of me.
+
+I looked at it. And the floor of the world gave way beneath my feet.
 
 ---
 
-There was a room at the end of the river that didn't belong.
+The marketplace told me three things. Each one worse than the one before.
 
-Every other room in that hidden bazaar was exactly what it should have been — fences, brokers, the cold machinery of buying and selling people. But the last room, the deepest one, the one where the most protected secrets of PHANTOM MERCY were kept — that room was different. That room was *locked.* Not the way the others were locked. The others were locked the way a shop is locked, against thieves. This one was locked the way a vault is locked, against the *world.* The kind of lock men like me spent our whole lost youth dreaming about, the kind nobody breaks — you only ever get carried past it, smiling, if they let you. Whatever was in that last room was the thing these people would burn everything else to protect. The crown jewel. The true ledger. The one set of files that named every name and mapped every route and proved every crime — the thing that, if it ever leaked, if it ever spilled into the daylight, would end them all forever.
+The first was the scale.
 
-And the tool, patient and certain and bloodless, brought me back the strangest thing of the whole night.
+I already knew the number. Two thousand eight hundred and forty-seven movements of money. Each one an act of kindness, seen alone. A confession, stacked with the others. But knowing a number and walking the river — those are two different things. Walking it, I felt the weight. Two thousand eight hundred and forty-seven times, someone's love had been collected in the dark and turned into freight.
 
-That last door — the deepest, most protected door in the entire rotten machine — had been *touched.* From the inside. Recently. Somebody was *in there.* Somebody had gotten past the lock that was built against the world, and was sitting inside the vault that held the end of PHANTOM MERCY, quietly, carefully, doing something to the files. Not stealing them. Not dumping them out into the open where they'd be screamed about for a day and buried the next. Not burning them. *Copying* them. Sealing them, one by one, the slow exacting way, pressing into each one a particular impossible mark so that years from now a stranger in a courtroom could pick it up and *know* it was true — nothing added, nothing removed, nothing tampered with in the dark.
+I had to get up. Walk to the window. Press my forehead against the cold glass. A number that size, once you finally feel it, does not fit in the head. It lives in the stomach.
+
+The second thing was the names.
+
+The river did not run wild. Rivers never do. It ran where the banks let it run — and the banks had names. Twelve of them. The same twelve faces I had already sealed. The philanthropists. The senior officials. The men who held children's hands for the cameras.
+
+But following the money showed me how they fit together. How each one stood at a particular bend in the river and took his cut as it passed. And I saw it for the first time. This was not twelve crooks who happened to know each other. It was a machine. One machine with twelve hands, built carefully over years by someone patient.
+
+And at the edge of the map, beyond the twelve, I felt the cold suggestion of a thirteenth shape. A hand the river bent around that the tool could not name. A larger shadow — one the twelve were only the fingers of.
+
+I filed it away. A chill settling in my chest. *Later. There is a later, and it is worse, and it is not for tonight.* Tonight the twelve were enough.
+
+And there was something else. Something I did not yet understand, so I set it aside the way you set aside a stone in your shoe when you are running for your life. You feel it. You tell yourself you will come back to it. You keep moving.
+
+The river had a guardian. Not a fence. Not a broker. A guardian.
+
+Somewhere along those banks — in the daylight world this time — someone with a badge and a clean reputation and an office in a building full of honest people was watching the river for the network. Making sure no one ever traced it upstream.
+
+Every time a hound got too close. Every time some honest investigator in some honest country started climbing toward the truth — a quiet word went out. The trail went cold. The investigator was transferred. The file was lost. The warrant arrived late by exactly the margin that mattered.
+
+The river had a friend inside the house of the law. I could feel the shape of him in the data the way you feel a draft and know a door is open somewhere you cannot see.
+
+I could not name him yet. But I knew — with a cold certainty that settled into my chest and stayed there — that he was real. That he was close. That he wore the badge of the very people I was about to hand my entire case to. And that before this was over, I was going to have to look him in the face.
+
+I filed him next to the thirteenth shadow. *Later.*
+
+Then the river reached its mouth. The place where it finally surfaced. Where the cargo changed hands. The tool followed the last piece to the last room. And that is where it found the third thing.
+
+The third thing was a door I was never supposed to find.
+
+---
+
+At the end of the river, there was a room that did not belong.
+
+Every other room in the bazaar was what you would expect. Fences. Brokers. The cold mechanics of buying and selling human beings. But the last room — the deepest one — the one where PHANTOM MERCY kept its most protected secrets — that room was different.
+
+It was locked. Not the way the others were locked. The others were locked like a shop — against thieves. This one was locked like a vault — against the world. Rigged to erase itself at the first wrong touch. To burn everything to ash.
+
+What was inside was the thing these people would destroy everything else to protect. The crown jewel. The true ledger. The one set of documents that named every name, mapped every route, proved every crime. The thing that, if it ever reached the light, would end all of them. Forever.
+
+And the tool — patient, certain — brought me back the strangest thing of the whole night.
+
+That last door — the deepest, most protected door in the entire machine — had been touched. From the inside. Recently.
+
+Someone was in there.
+
+Someone had gotten past the lock that was built against the world. Slipped through the trap without triggering it. And was now sitting inside the vault that held the end of PHANTOM MERCY. Quietly. Carefully. Doing something to the files.
+
+Not stealing them. Not burning them. *Copying them.* Sealing them, one by one, the slow and exact way. Pressing into each one a particular mark — a mark that could not be faked — so that years from now, a stranger in a courtroom could pick up that file and *know* it was true. Nothing added. Nothing removed. Nothing touched in the dark.
 
 I knew that mark.
 
-I knew it the way a man knows a handwriting. I'd spent six days following that exact, patient, unbreakable way of doing things across the whole dark surface of the world — drop by drop, thread by thread, evidence bled into the seams of the planet by someone who refused, even at the end of everything, even alone in the belly of the machine, to do it any way but the right way.
+The tool laid it at my feet. The last thing it had brought up from the bottom of the dark. Not a file. Not a name. Just the seal itself, bare, at the bottom of the final document.
 
-It was *her* way.
+```
+sealed · file 2847/2847 · no edits
+hash ok — chain intact
+— δ
+```
+
+To anyone else it would have meant nothing. Three dead lines, the kind of noise a machine spits out. Not to me. I read it like a letter. The last file, number two thousand eight hundred and forty-seven, sealed cleanly. Nothing added, nothing removed, the entire chain intact from the first to the last. And at the bottom, in place of an alias, in place of nothing, that small letter. One letter. Her way of saying *this is true, and I am the one who swears it.* I knew it the way you know a handwriting. The way you recognize a signature on a network where everyone hides behind a false name. I had spent six days following this way of working — exact, patient, unbreakable — across the whole dark surface of the world. Drop by drop. Thread by thread. Evidence bled into the seams of the planet by someone who refused, even at the very end, to do it any way but the right way.
+
+Every seal carried the same signature. Two strokes. A lowercase δ. Her letter.
+
+It was her way.
 
 It was Clara.
 
-She was inside the vault. The most protected room in the entire network — the one door no captor would ever let a hostage near, the one place an outsider could never, ever reach — and she was *inside it,* working, calm, sealing the truth one piece at a time, building the unbreakable case from the very centre of the machine that had her.
+She was inside the vault. The most protected room in the entire network. The one door no captor would ever let a hostage near. The one place no outsider could ever reach. And she was *inside it.* Working. Calm. Sealing the truth file by file. Building the unbreakable case from the very heart of the machine that held her.
 
-And that's when the floor dropped out of me a second time, the worse time, the time it didn't come back.
+That is when the floor gave way a second time. The worse time. The one I did not come back from.
 
-Because no one gets into that room as a prisoner. No one is *taken* into the heart of a thing like this. They would never let a prisoner near it. The only way — the *only* way — into the deepest room of the marketplace is to be *trusted.* To be one of them. To be carried in, smiling, as a colleague, through every lock that's built against the world, because you are not the world. You're family.
+Because you do not get into that room as a prisoner. You are not *led* into the center of something like this. The only way into the deepest room in the marketplace is to be *trusted.* To be one of them. To be carried through every lock built against the world, smiling, because you are not the world. You are family.
 
-I sat in the dark above the bakery with the river spread out across the screens in front of me and the one lit window burning four floors up across the city, and I finally understood the thing that had been eating me for two days. The generator. The single floor kept alive. The investment they would never make in a hostage.
+I sat in the dark above the bakery. The screen glowing blue. The river spread out in front of me. The single light burning far below, on the other side of the city. And I finally understood what had been eating me for two days. The generator. The one basement kept alive. The investment you would never make in a hostage.
 
-They didn't carry that generator up the stairs for a prisoner.
+They did not carry that generator down the stairs for a prisoner.
 
 Clara had not been taken.
 
-She walked in — on purpose — to reach something only an insider could touch.
+She had walked in — to reach the one thing only an insider could touch.
+
+And if she was not a prisoner —
+
+Then I had spent six days trying to rescue someone who was never a captive.

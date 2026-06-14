@@ -1,153 +1,177 @@
 # Chapter 7: The Family Answers
 
-There is a moment, after a blow lands, before the pain arrives. A breath of clean white nothing where the body hasn't yet agreed to feel what just happened. I lived in that breath for a long time, alone in the Brussels dark, the only light in the room the cold blue wash of a screen that had just told me — in the flat, undeniable way the system tells things — that one of my own people might be holding the thread that led to Clara's captors.
+There is a moment, after a blow, before the pain. A white gap. The body hasn't agreed yet to understand what just happened.
+
+I lived in that gap for a long time. Alone in the Brussels dark. Eyes on a screen that had just told me something impossible — that one of my own people might be holding the thread that led to Clara's captors.
 
 Then the pain arrived.
 
-I closed the laptop. Not because I wanted to stop looking — God knows I'd spent years prowling the edges of this thing, lurking in channels that don't have names, in forums you reach by knowing someone who knows someone, without ever once seeing the shape of it — but because I needed to be a person for a minute and not a hunter. I went to the window. Behind me the machines kept up their low animal hum, the sound I've slept to more nights than I've slept to a heartbeat. The rain had thinned to a kind of grey breathing against the glass. Three floors down, a man walked a dog that clearly resented the whole arrangement. The world, having the nerve to keep being the world.
+I closed the laptop. Not to stop looking. To be a man for one minute, and not a hunter. The room went dark again. That particular dark of people who live by the light of a screen. A cold coffee sat near the keyboard, a grey skin floating on the surface, forgotten for hours.
+
+I went to the window. The rain had eased. Three floors down, a man walked a dog that wanted no part of any of this. The world, going right on being the world. The nerve.
 
 *The second signature belonged to my family.*
 
-I have to be honest with myself about what that sentence did to me, because pretending I took it like a professional would be the first lie of the worst night of my life. It didn't make me angry. It made me *young*. It dropped me straight back into every other time I'd been betrayed by something I loved, every time the floor I trusted turned out to be a trapdoor. I have a gift for loving completely. It is also, I've been told, my great defect — that when I give myself to people I give *everything*, and I don't keep a hand on the door, and so when one of them turns, it doesn't break a part of me. It breaks the whole thing.
+That sentence didn't make me angry. It made me young again. It sent me back to every time something I loved had betrayed me. Every time the floor had opened under my feet.
 
-I had built a family on purpose, after the old life — after the years I don't talk about, when I broke into things for money, for principle, for the thrill, and too often to impress a woman. Chosen, not inherited. People I'd met in the seams of the world, where the ones who've gone dark find each other: handles before faces, trust before names. People I'd picked up off the floor of the world, or who'd picked me up off mine. A handful of souls scattered across a handful of cities who would answer an encrypted ping at three in the morning and not ask why. That family was the one clean thing I'd made before Clara. And now the system — the thing I'd built in seven sleepless days to save the woman I loved — was telling me, in the only language it knows, the language of proof, that one of those souls had touched the rot.
+I love completely. That is my gift. That is my defect. When I give myself to people, I give everything. I don't keep a hand on the door. So when one of them turns — it doesn't break a part of me. It breaks the whole building.
 
-I didn't know which one. The system is honest but it is not cruel; it had shown me a resemblance, a kinship of method, a hand that had learned its tradecraft at the same table as the man who'd taken her. It had not given me a name. It had given me a wound and let me find the knife myself.
+I had built this family on purpose, after the old life. Chosen, not inherited. People I had found on the floor of the world, or who had found me on mine. People who lived the way I did, in the seams of things. Behind handles more real than their legal names. In closed rooms where you speak in half-words. On forums whose addresses change with the seasons.
 
-And here is the thing that shames me, the thing I make myself remember: my first instinct was not to find out who. My first instinct was to *warn them.* All of them. Because even now, even with the proof breathing on the screen, the idea that one of mine had gone dirty felt less likely than the idea that the whole world was lying.
+A handful of souls across a handful of cities. Ready to pick up at three in the morning without asking why.
 
-That is what love had always made of me. That is the flaw. I have spent my whole life unable to believe the people I love could hurt me, which is exactly why they always could.
+This family was the one clean thing I had made before Clara. And now the system — the very thing I had built to save her — was telling me that one of those souls had touched the rot.
+
+I didn't know which one. The system is honest. It is not cruel. It had shown me a resemblance. A hand that had learned its trade at the same table as the man who had taken her. Not a name. Just a wound. It was up to me to find the knife.
+
+And here is the thing that shames me. My first instinct was not to find out who. My first instinct was to warn them. All of them. Because even with the proof right there on the screen, the idea that one of mine had gone dirty felt less likely than the idea that the whole world was lying.
+
+That is what love is. That is the defect. I have never been able to believe the people I love can hurt me. Which is exactly why they always could.
 
 ---
 
 So I did the only thing a man like me knows how to do when the ground gives way.
 
-I called my family awake.
+I woke my family.
 
-Here is who they were, quickly, because they were the people I loved as much as anything I'd ever made, and because in a few minutes one of them was going to break what was left of me.
+I need to say who they are. Quickly. Because in a few minutes one of them is going to break me.
 
-There's Ifeoma, in Lagos. She runs the bones of everything I've ever built — the quiet machinery in the dark, the servers nobody sees, the part nobody thanks until it's gone. She is the most decent person I know and she has never once let me believe I'm a good man, which is its own kind of love. When I met her she was nineteen and furious and ten times smarter than the men paying her a tenth of what they paid each other, doing root-level miracles for people who couldn't spell her name. I gave her a way out. She gave me a conscience. I'd say we're even but she'd say I still owe her, and she'd be right.
+There's Ifeoma, in Lagos. She runs the bones of everything I have ever built — the dark, humming room that keeps the lights on. The most decent person I know. She has never once let me believe I was a good man. That is her way of loving me.
 
-There's Basti, in Marseille. A locksmith now, a smuggler once, a man who can open any door in the old port and tell a filthy joke while he does it. He has the heart of a golden retriever and the rap sheet of a minor warlord and I trust him with my life because he has, twice, kept it. If the hunt for Clara ever became a thing of boots and streets and locked doors instead of light on a screen, it would become Basti's.
+When I met her she was nineteen. An angry-kid handle on a forum where men treated her like a faceless machine. She was ten times better than all of them. I gave her a way out. She gave me a conscience.
 
-There's Yuri, in Kyiv. A listener. He hears things other people miss in the static of the world — sifts signal out of noise, reads the silence between two messages that were never supposed to be read together. He's done it since before the war made everyone else learn to. Paranoid to the bone, runs everything behind seven curtains, trusts no one — and the terrible thing about Yuri is that he's usually right. Which is why, of all of them, his trust in *me* has always felt like the most expensive gift in the room.
+There's Basti, in Marseille. A locksmith now. A smuggler before. He can open any door in the old port and tell you a filthy joke while he does it. Heart of a golden retriever. Rap sheet of a minor warlord. I trust him with my life. He has saved it twice. If the hunt for Clara ever became a thing of streets and locked doors, it would become Basti's.
+
+There's Yuri, in Kyiv. A listener. He hears what other people miss in the noise of the world — well before the war made everyone else learn to listen. Paranoid to the marrow. He changes handles and lines the way other people change shirts, thumb always on the switch that wipes everything. And the worst thing about Yuri is that he is almost always right. He trusts no one. His trust in me has always felt like the most expensive gift in the room.
 
 And there's Noa.
 
 I'll come to Noa.
 
-I reached for them the way a man reaches for people when the house is on fire — fast, without grace, not caring how it looks. The system has a way of putting out a call across all of them at once, a single quiet signal flare thrown up into the dark where my family lives, asking them to lend me their eyes without me having to dial four numbers with shaking hands. I leaned on it. I said, in the only words I had: *Clara's gone. PHANTOM MERCY took her. I think they had help that's close to us. Look. Please. Look at everything and tell me what you see.*
+I reached for all of them the way you reach for people when the house is burning. Fast. Without grace. The system can send a call to all of them in one move — ring four phones in four cities, pull the family out of sleep like pulling a bell rope. I didn't have to dial a single number with my shaking hands. I said, in the only words I had:
 
-And then I sat in the dark and watched the screen, a mug of coffee gone cold and skinned-over at my elbow, and waited for the people I loved to answer, and tried not to wonder which of them I was really asking, and which of them I was warning.
+*Clara is gone. PHANTOM MERCY took her. I think they had help close to us. Look. Please. Look at everything. Tell me what you see.*
+
+Then I sat in the dark and waited. Forcing myself not to wonder which of them I was really calling for. And which one I was warning.
 
 ---
 
-Ifeoma came first, because Ifeoma is always first, because she never sleeps and pretends it's a discipline rather than a grief.
+Ifeoma came first. Because Ifeoma is always first. She never sleeps and insists it's discipline, not grief.
 
-"You look like hell," she said, and even through a connection that bounced through half a dozen countries to reach me, a thousand miles of dark away, her voice did the thing it always does — it made the room smaller and the night survivable. "When did you last eat?"
+"You look terrible." Even on a bad line, a thousand miles of dark between us, her voice did what it always does. It made the room smaller. Made the night survivable. "When did you last eat?"
 
-"Don't," I said.
+"Don't start," I said.
 
-"When did you last *eat*."
+"When did you last *eat.*"
 
 "Ifeoma."
 
-A pause. She heard it then — whatever was in my voice. She has known me long enough to hear the difference between *I'm in trouble* and *I'm in the kind of trouble I won't come back from the same.* I heard her sit up. I heard a chair scrape on a tiled floor four time zones away, heard the small click of a screen waking up to meet mine.
+A pause. She heard it then. Whatever was in my voice. She has known me long enough to hear the difference between *I'm in trouble* and *I'm in the kind of trouble I won't come out of the same.* I heard her sit up straight. A chair scraped tile four time zones away. The fans hummed behind her — her white noise, her constant.
 
-"Tell me," she said. No softness now. The softness was a door she'd closed so she could carry whatever I was about to hand her.
+"Tell me." No softness now. She'd put it away so she could carry what I was about to hand her.
 
-I told her. Not all of it — not the part about the second signature, not yet, not until I knew. But Clara. The trafficking dressed up as mercy. The convoys that were really routes. The donations that were really laundering. The children. The number Clara had carried out of the dark like a body across her shoulders: forty-seven. Forty-seven children, somewhere in the machine, being moved.
+I told her. Not everything — not the second signature, not yet, not before I knew. But Clara. The trafficking dressed up as mercy. The convoys that were really routes. The children. The number Clara had carried out of the dark like a body on her shoulders: forty-seven. Forty-seven children, somewhere inside the machine, being moved.
 
-Ifeoma was quiet for a long time. When she spoke, her voice had gone very level, very careful, the way it does when she's about to be braver than is good for her.
+Ifeoma was quiet a long time. When she spoke, her voice had gone very flat, very careful. The voice she uses when she is about to be braver than is good for her.
 
-"Then we find them," she said. "All of them. Tell me where to look."
+"Then we find them. All of them. Tell me where to look."
 
-And she began to look. I felt it more than saw it — the family lending me its eyes, my reach suddenly multiplied, the dark getting one shade less total because someone I trusted had turned a light on in another country and started pulling at threads in the deep places where the network thought it was hidden. It is a particular feeling, being less alone in a hopeless thing. It is, I think, the closest I come to prayer.
+And she started looking. I felt it more than saw it. The family lending me its eyes. My reach doubling. The dark losing one shade of itself because someone I trusted had turned a light on in another country.
+
+That feeling is rare. Being a little less alone in something hopeless. It is, I think, the closest I come to prayer.
 
 ---
 
-Basti answered with a curse and a yawn and the sound of a woman telling him to take it in the other room.
+Basti answered with a curse, a yawn, and the sound of a woman telling him to take it in the other room.
 
-"Do you know what hour it is," he said.
+"Do you know what time it is?"
 
 "I need your eyes on Marseille."
 
-The yawn stopped. Everything about Basti stopped when a man said Marseille the way I'd said it. The old port is his and he is the old port's, and an insult to one is an insult to both.
+The yawn stopped. Everything in Basti stops when you say Marseille the way I said it. The old port is his and he is the old port's. An insult to one is an insult to both.
 
-"What did they do," he said. Not *what's wrong.* *What did they do.* Already on his feet. Already, in his head, walking down to the water in the dark to ask hard men soft questions in the places where the screens go dark and the work gets done with hands.
+"What did they do?" Not *what's wrong.* *What did they do.* Already on his feet. Already walking in his head down to the waterfront in the dark, to ask hard men soft questions in the places where screens go dark and the work gets done with hands.
 
-I told him a version. Convoys that came in too clean. Mercy that smelled wrong. A woman, taken, maybe held somewhere south. He didn't ask who the woman was. He could hear who the woman was. Basti has watched me love badly his entire adult life and he knew, the way you know weather, that this time it was different, that this time I'd loved someone who loved me back and now she was gone.
+I gave him a version. Convoys that came in too clean. Mercy that smelled wrong. A woman, taken, maybe held somewhere in the south. He didn't ask who the woman was. He could hear who she was. Basti has watched me love badly his entire adult life. He knew, the way you know weather, that this time was different. That this time I had loved someone who loved me back. And that she was gone.
 
-"I'll start asking," he said. "Quietly. The way you taught me." A beat. "We'll get her, brother."
+"I'll start asking around. Quietly. The way you taught me." A beat. "We'll get her back, brother."
 
-He didn't know if that was true. Neither did I. But there are lies you tell each other at three in the morning that aren't lies so much as promises you're both agreeing to try to keep, and that was one, and I held it like a coal.
+He didn't know if that was true. Neither did I. But there are things you say to each other at three in the morning that aren't lies so much as promises you're both agreeing to try to keep. That was one. I held it like a coal.
 
 ---
 
-Yuri took the longest, and answered the way Yuri always does, with a question instead of a hello.
+Yuri took the longest. He answered the way he always does — with a question instead of a hello. After two hang-ups and a channel change. He never talks on the first line, never twice on the same one, and he wipes the thread behind him as he goes.
 
 "Who else have you told?"
 
-That's Yuri. The first thing he wants to know is the shape of the circle — who's in it, where it leaks, which handle might be wearing another man's face. I told him. Ifeoma. Basti. Him.
+That's Yuri. The first thing he wants is the shape of the circle. Who's in it. Where it leaks. I told him. Ifeoma. Basti. Him.
 
-"And the fourth," he said. Because Yuri counts my family better than I do. Because Yuri has never trusted the fourth, and has never said so, and has, in not saying so, said everything.
+"And the fourth."
+
+Because Yuri counts my family better than I do. Because Yuri has never trusted the fourth. He has never said so. And in not saying so, he has said everything.
 
 "Not yet," I said.
 
-A silence with weight in it. Then, low: "Be careful who you wake up. Whatever this is, it's old, and it's careful, and careful things don't get careful by accident. Someone *taught* it to hide. This isn't a kid leaking a dump for clout. This is a hand that knows how to leave no hand." He didn't know how close he'd cut to the bone. Or maybe he did. With Yuri you never know how much he knows and how much he's just afraid of, and the maddening thing is they're so often the same number.
+A silence with weight in it. Then, almost under his breath: "Be careful who you wake up. Whatever this is, it's old. It's careful. And careful things don't get that way by accident. Someone *taught* it to hide."
+
+He didn't know how close he was to the bone. Or maybe he did. With Yuri you never know what he knows and what he merely fears. They are usually the same thing.
 
 "I'll be careful," I said.
 
-"You won't," he said, almost gently. "You never are, with people. It's the best thing about you and it's going to get you killed." And then, before I could answer: "I'm looking. Give me the threads."
+"No." Almost gentle. "You're never careful with people. It's the best thing about you. And it will get you killed." Then, before I could answer: "I'm looking. Give me the threads."
 
-I gave him the threads. The family's eyes, wider now. Lagos, Marseille, Kyiv — three lights in the dark, three people I'd have died for turning their whole attention on the thing that had taken the woman I'd actually have died for. By morning, with their eyes added to the system's, the dark might shrink to something I could put my hands around. The whole impossible country might narrow to a street.
+I gave him the threads. The family's eyes, wider now. Lagos, Marseille, Kyiv. Three lights in the dark. Three screens lit in three sleeping cities. Three people I would have died for, turning everything they had toward the thing that had taken the woman I would actually have died for.
+
+By morning, their eyes added to the system's, the dark might shrink to something I could hold in my hands. The whole impossible country might narrow to a single street.
 
 If one of them was clean. If all of them were.
 
 ---
 
-Which left Noa.
+That left Noa.
 
-I had been circling her name all night, leaving her for last.
+I had said I would come to Noa.
 
-Noa is the ex who still answers. That's the short version and it's a coward's version. The long version is that Noa is the love I broke before I knew what I was for — the woman who got the version of me that gave everything and kept nothing, the version that scattered, the version that fell so hard he forgot to stand. I loved her the way I love, completely, and then I loved someone else the same way, while she watched, because that was the disease and I hadn't found the cure yet. She had every right to burn my handle out of her life forever and never pick up again.
+Noa is the ex who still picks up. That's the short version. It's a coward's version. The long version is that Noa is the love I broke before I knew what I was for. The woman who got the version of me that gave everything and held nothing back. The version that scattered. The version that fell so hard he forgot how to get up.
+
+I loved her the way I love. Completely. Then I loved someone else the exact same way, in front of her, because that was the sickness and I hadn't found the cure. She had every right to hang up on me forever.
 
 She never has.
 
-That's the part I can't explain and have stopped trying to. Noa, in Tel Aviv, picks up. After everything. She picks up like a woman keeping a vigil at a grave she's too stubborn to admit is a grave. Sometimes I think she's the ghost of my flaw, kept alive to haunt me. Sometimes I think she might be the only one who could ever forgive it, which is its own kind of haunting.
+That's the part I can't explain and have stopped trying to. Noa, in Tel Aviv, picks up. After everything. She picks up like a woman keeping vigil at a grave she's too stubborn to call a grave. Sometimes I think she is the ghost of my defect, kept alive to haunt me. Sometimes I think she's the only one who could ever forgive it. Which is its own kind of haunting.
 
-I almost didn't call her. Yuri's voice was in my ear — *be careful who you wake up* — and a small ugly part of me, the part the system had infected with proof, whispered that I didn't know, that I *couldn't* know, that the second hand could be any of them, even her, *especially* her, because who better to hide in plain sight than the one I'd never suspect because I'd already broken her?
+I almost didn't call her. Yuri's voice was in my ear. *Be careful who you wake up.* And a small, ugly part of me — the part the proof had infected — whispered that I couldn't know. That the second hand could be any of them. Even her. *Especially* her. Because who hides better in plain sight than the one I would never suspect, because I had already broken her?
 
-I hated that thought. I called her anyway. Because if I started choosing who to trust by who I was afraid to lose, I'd have already lost.
+I hated that thought. I called her anyway. Because if I started choosing who to trust by who I was afraid to lose, I had already lost.
 
-She answered on the second ring. Of course she did.
+She picked up on the second ring. Of course she did.
 
-"It's late even for you," she said. Her voice in the dark. There are voices that are also places, and hers is a place I lived once and was happy in and ruined.
+"It's late, even for you." Her voice in the dark. There are voices that are also places. Hers is a place I lived in once, was happy in, and ruined.
 
-"Noa." That was all I had. Her name. The whole apology I'd never finished, folded into two syllables.
+"Noa." That was all I had. Her name. Every unfinished apology folded into two syllables.
 
-She heard it. She always hears it. "What's wrong," she said, and the *what's wrong* was so tender, so without grudge, that for a second I couldn't speak at all.
+She heard it. She always hears it. "What's wrong," she said, and it was so tender, so without anger, that for a moment I couldn't speak.
 
-So I told her. Clara. I told Noa about Clara — the woman who came after her, the woman who was *real*, the words coming out clumsy and cruel and I couldn't stop them. And Noa, who had every reason on earth to put the phone down, did not put the phone down. She got quiet, the good quiet, the listening quiet. And then she said the thing that undid me, the thing only she would say:
+So I told her. Clara. I talked to Noa about Clara — the woman who came after her, the woman who was *real*. The words came out clumsy and cruel and I couldn't stop them. And Noa, who had every reason on earth to hang up, did not hang up. She went quiet. The good quiet. The listening quiet. And then she said the thing that undid me. The thing only she would say.
 
-"Then we get her back. Whoever she is. If she's the one who finally made you stay — then she's family too, and we get her back." A breath. "Tell me what you need."
+"Then we get her back. Whoever she is. If she's the one who finally made you stay — then she's family too. We get her back." A breath. "Tell me what you need."
 
-I closed my eyes. The rain. The radiator. The hum of the machines. Three lights in three cities and now a fourth, the one I least deserved, lit and turned toward me in the dark.
+I closed my eyes. The rain. The radiator knocking. Three lights in three cities. And now a fourth — the one I deserved least, lit and aimed at me in the dark.
 
-"I need your eyes," I said. "I need you to look at something with me. There's a — there's a pattern in how they hide. A hand. I think someone close to us might have —" My throat closed. I made myself say it. "I think one of ours might have touched this. I don't know who. I'm afraid to know who. But you're the one I'm not afraid to ask, so I'm asking. Look with me. Tell me what you —"
+"I need your eyes," I said. "I need you to look at something with me. There's a pattern in the way they hide. Always the same. Like handwriting. A specific hand. I think someone close to us might have —" My throat closed. I forced it open. "I think one of ours touched this. I don't know who. I'm afraid to know who. But you're the one I'm not afraid to ask. So I'm asking. Look with me. Tell me what you —"
 
 "Wait," she said.
 
-Just that. *Wait.* The way you say it when something has moved at the edge of your sight, when a light blinks on in a place that should have been dark. I heard her shift. I heard her go very still, the kind of still that has its own sound.
+Just that. *Wait.* The way you say it when something moves at the edge of your vision. I heard her shift. I heard her go perfectly still. The kind of still that has its own sound.
 
-"There's something in my—" she started, and her voice changed, dropped, sharpened to a point. "Hold on. There's something here that shouldn't—"
+"There's something in my —" Her voice changed. Dropped. Went sharp. "Hold on. There's something here that shouldn't —"
 
-And then she said one more word. A single word, started and never finished, the front half of it landing clear and the back half falling off the edge of the world.
+And then she said one more word. A single word. Started and never finished. The first half landing clean, the second half falling off the edge of the world.
 
-The same word Clara had said. The very last word, the one Clara's message had broken off on, the one I'd read until it wore smooth and never understood.
+The same word Clara had said. The very last word. The one Clara's message had broken off on. The one I had read until I wore it smooth and still never understood.
 
 Noa said it — and then there was nothing.
 
-No click. No goodbye. No line gone dead with the decency of a sound.
+No click. No goodbye. No line going dead with the decency of a sound.
 
-Just her, mid-breath, mid-syllable, cut off on the exact word Clara had — and then the silence where her voice used to be.
+Just her, mid-breath, mid-syllable, cut off on the exact word Clara had been cut off on — and then the silence where her voice had been.

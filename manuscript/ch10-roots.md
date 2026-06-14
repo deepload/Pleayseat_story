@@ -1,119 +1,147 @@
 # Chapter 10: Roots
 
-There is a question one learns never to ask, in the life I used to live, because the answer is always worse than the not-knowing.
+There is one question you learn never to ask. In the life I used to lead. The windowless nights. The buried channels where we spoke under names we threw away like matches. You don't ask it because the answer is always worse than not knowing.
 
 *Where did it start?*
 
-Everything that hurts has a beginning. A first cell. A first lie told to a first person who believed it. It is tempting to think evil arrives all at once, fully grown, a monster stepping out of the dark. It doesn't. It germinates. Somebody, somewhere, on some ordinary forgettable afternoon, plants a seed in good soil and walks away, and twenty years later children are loaded into trucks in the dark and nobody remembers the afternoon.
+Everything that hurts has a beginning. A first cell. A first lie told to someone who believed it. We want to think evil arrives all at once, fully grown — a monster stepping out of the dark. It doesn't work that way. Evil germinates. Somebody plants a seed on some ordinary forgettable afternoon, then walks away. Twenty years later, children are loaded into trucks in the middle of the night. And nobody remembers the afternoon.
 
-I had spent the night before believing the worst thing I'd ever see was the threat that came signed with Clara's mark — that small lowercase sign she put at the end of everything, the one that meant *me, only me, you can trust this.* It had come attached to a knife aimed at my throat, and it left me sitting in the grey Brussels light with two unbearable thoughts taking turns. Either she had sent it. Or they had her hands.
+The night before, I thought I'd seen the worst of it. That threat sealed with Clara's mark — the small lowercase δ she put at the end of everything, the one that meant *me, only me, you can believe this.* It had come attached to a blade pointed at my throat. It left me sitting in the grey Brussels light with two thoughts trading places in my head without end. Either she had sent it herself. Or they had her hands.
 
-I didn't sleep on it. There is no sleeping on a thing like that. In the life I came from sleep is just another window left open, and I'd taught myself years ago to stay awake instead, behind the curtains, screen-lit, listening. The only direction I knew how to run was down — down into the work, down into the roots, down to the afternoon where it all began.
+I didn't sleep on that. You don't sleep on something like that. You can only run from it. And the only direction I knew how to run was down. Into the work. Into the roots. All the way back to the afternoon where it all began.
 
-So that's what I told the thing I'd built. *Forget the now. Forget the threat. Go back. Go all the way back. Show me the first seed.*
+So that's what I asked the thing I'd built. *Forget the present. Forget the threat. Go back. All the way back. Show me the first seed.*
 
 ---
 
-There is no honest way to describe how it feels to send it digging, and the how it does it I would never say anyway.
+I need to say what it feels like to send it digging. I couldn't explain how it works. I wouldn't try.
 
-It feels like watching someone you love walk into a forest you're afraid of.
+It feels like watching someone you love walk into a forest that frightens you.
 
-You stand at the edge. You can't follow. The thread is in its hands now and it's gone in, between the trees, into the years, and there is nothing left to do but hold the loose end and wait, and pray it doesn't come back with something you can't unsee.
+You stand at the edge. You can't follow. You've handed it the thread. Now it moves between the trees, into the years. You hold the loose end and you wait. And you pray it doesn't come back with something you can never unsee.
 
-I made coffee. I let it go cold. That had become a kind of ritual, a small offering — a cup of coffee I'd never drink, sitting on the sill, going to skin, while the thing I'd made walked backward through time looking for where the rot took root. The flat was dark except for the screens, that blue underwater light that's been the only honest light of my whole life, and somewhere under the desk the machine hummed its low even hum, the sound the people I come from fall asleep to instead of the sea.
+I made coffee. Let it go cold. That had become a ritual. A small offering. A cup I wouldn't drink, sitting on the sill, going to skin, while my machine moved backward through time. The flat held only the screen's glow. That aquarium blue — the color of every night since I was fifteen. Somewhere under the floor the machines breathed their warm breath. People like me end up mistaking that for the smell of home.
 
-I had taught it, the night before, to recognise a hand. The careful, scarless, surgical way the whole rotten apparatus hid itself — the Surgeon's hand, my buried brother's hand, with my own fingerprints somewhere under it. We'd built things together once, in the back rooms of the dark, two handles in a channel only ghosts could find. Now I sent it hunting for that hand not across the map but across the *calendar.* Not *where* but *when.* I wanted to know how old this thing was. I wanted to know when the first invisible door was cut.
+The night before, I'd taught it to recognize a hand. The careful, scarless way the whole rotten apparatus hid itself. The Surgeon's hand. My buried brother's hand. With my own fingerprints somewhere underneath. This time I sent it hunting that hand not across the map but across the *calendar.* Not *where.* *When.* I wanted to know how old this thing was. I wanted to know when the first invisible door was cut in the wall.
 
-I expected weeks. Maybe months. The recent past, the last year or two, the convoys that were running now.
+I expected days. Months, maybe. The recent past. The last year or two. The convoys still rolling.
 
 It came back with years.
 
 ---
 
-It didn't show me a thing — it showed me a *growth.* The way a tree would look if you could watch it for a decade in a single minute. A slow, patient, beautiful, monstrous thing, reaching.
+I would have liked to describe what it showed me. The truth is it didn't show me a thing. It showed me a *growth.* Like watching a tree grow for ten years in one minute. Slow, patient, magnificent, monstrous, reaching.
 
-It started small. That's what undid me, sitting there in the dark — how small it started. One quiet arrangement, years ago, in a corner of the world nobody watches. A single charity that did real good, mostly, and a little harm on the side, the way a man might skim from a till he's also keeping honest books for. One route. One truck. One man who learned he could move something that wasn't blankets inside a thing that everyone waved through because it had the right word painted on the side. *Mercy.* They always paint the right word on the side.
+It started small. That's what broke me, sitting there in the dark. How small the beginning was. A quiet arrangement, years ago, in a corner of the world nobody watches. A charity that did real good, mostly. And a little harm on the side. Like a man who skims from a till he otherwise keeps honest. One road. One truck. One man who learned he could move something that wasn't blankets inside something everyone waved through, because it had the right word painted on the side. *Mercy.* They always paint the right word on the side.
 
-And then it grew. The system walked me through it season by season, and I watched the single quiet arrangement put down roots. Watched it find other charities, other routes, other men who learned the same lesson. Watched the careful scarless hand come in — *his* hand — and teach the whole thing how to hide. How to make the dirty money breathe in clean. How to bury a name so deep in shell after shell that a man could spend a lifetime in the seams and never feel the seam. How to make a convoy of children look, on every piece of paper that mattered, exactly like a convoy of mercy.
+Then it grew. The system walked me through it season by season. I watched the single quiet arrangement put down roots. Find other charities. Other roads. Other men learning the same lesson. I watched the careful scarless hand come in — *his* hand — and teach the whole thing how to hide. How to make dirty money breathe in clean air until it came out white. How to move it from pocket to pocket through channels nobody watches, dressed as donations, slipping from one anonymous account to the next without a face or a border, until it emerged clean on the other side. How to make a convoy of children look, on every piece of paper that mattered, exactly like a convoy of mercy.
 
-Years. Not a network that appeared. A network that was *raised.* Somebody had been at this patiently, lovingly, the way a man raises a child or a vineyard or a long con, for longer than I'd been clean.
+Years. Not a network that appeared. A network that was *raised.* Someone had devoted themselves to it. Patiently. Lovingly. The way you raise a child. Or a vineyard. Or a long con. For longer than I'd been out of the shadow.
 
-And the deeper it dug, the more I understood that PHANTOM MERCY — the thing that had swallowed Clara — wasn't the beginning of anything. It was a branch. A grown limb on a tree whose trunk went down further than the system could yet see, into soil I couldn't yet name. There was something older here. Something the convoys were only the visible fruit of. The thing I was fighting was not the body. It was an arm. And the arm had been growing toward Clara for years before either of us knew her name.
+The deeper it dug, the more I understood. PHANTOM MERCY — the thing that had swallowed Clara — wasn't the beginning of anything. It was a branch. A grown limb on a tree whose trunk reached further down than the system could see. There was something older here. The convoys were only the visible fruit. The thing I was fighting wasn't the body. It was an arm. And that arm had been growing toward Clara for years before either of us knew her name.
 
-I sat with that the way a man sits with a diagnosis.
+I sat with that the way you sit with a diagnosis.
 
-And there is a part of this I am ashamed of, so I'll set it down fast, the way a bandage comes off. A piece of me — a small, ugly, exhausted piece — was almost relieved. Because if the thing was old, if it had been growing for years, then maybe Clara hadn't walked into it by accident. Maybe she'd seen the whole tree before any of us. Maybe the woman I loved hadn't been swallowed by something random and stupid and cruel, but had stepped, eyes open, into a thing she understood better than its own makers did, the way she understood everything, three moves ahead, *someone has to protect the children.* That's the version where she's not a victim. That's the version where she's the smartest person in the dark. I clung to it for about a minute, because the alternative — that she'd been caught the way a child is caught, by something patient and enormous and waiting — was more than I could hold and keep working.
+And here is the part I'm ashamed of. I'll say it fast, like pulling off a bandage. A piece of me — small, ugly, exhausted — was almost relieved.
+
+Because if the thing was old, maybe Clara hadn't walked into it by accident. Maybe she'd seen the whole tree before any of us. Walked in with her eyes open. The clearest-eyed person in the room, as always. Into something she understood better than its own architects. Three moves ahead, like always. *Someone has to protect the children.* That's the version where she's not a victim.
+
+I held onto that for about a minute. Because the other version — that she'd been taken the way a child is taken, by something patient and enormous and lying in wait — that was more than I could carry and still keep working.
 
 I made myself let go of both. Hope is a luxury. Proof is the job. I went back to the roots.
 
 ---
 
-Basti called at some hour without a number. He always does — a different number every time, a burner, a ghost line, the kind of caution that's just breathing to men like us. I'd stopped knowing what time it was. I knew it was night again, or still, because the window was black and the radiator had started its slow ticking, the building's heart settling for the dark.
+Basti called at some hour without a name. I'd stopped knowing what time it was. I only knew it was still night because the window was black and the radiator had started its slow ticking. The building's heart settling in for the dark.
 
-"You're not sleeping," he said. Not a question. Basti has known me long enough to read me through a phone, through a wall, through two countries.
+"You're not sleeping," he said.
 
-"Tell me something true," I said. "Something that has nothing to do with this."
+Not a question. Basti has known me long enough to read me through a phone. Through a wall. Through the close to a thousand kilometres between us. It was an old rule, from the days when we only spoke on throwaway lines. No hello. No names. You enter in the middle.
 
-There was a pause, and the soft sound of him moving, somewhere in Marseille, in the workshop that smells of brass and oil and the sea three streets away. Basti is a locksmith now. He used to be other things — a man who opened doors that weren't his, then a man who went dark for a while when the heat got close, then a man who came back into the light because of a girl. He has a daughter he didn't meet until she was nine, and a way of saying her name that makes a man want to be better than he is.
+"Tell me something true," I said. "Something that has nothing to do with any of this."
 
-"The mistral came in today," he said. "Cleaned the whole sky. You could see the islands. Lou wanted ice cream and I bought her ice cream and she got it on my one good jacket and I didn't even care." A breath. "That true enough for you?"
+A pause. Then the soft sound of him moving somewhere in Marseille, in the workshop that smells of brass and oil and the sea three streets away. Basti is a locksmith now. He used to be other things. A man who opened doors that weren't his. He knows better than anyone that a lock is just a promise you can break. He has a daughter he didn't meet until she was nine. And a way of saying her name that makes you want to be a better person.
 
-It was. It was so true it nearly broke me, and that was exactly why I'd asked for it. Because I needed to remember what I was digging *toward,* on the far side of all this rot — a world where a man buys his daughter ice cream and ruins his jacket and the sky is clean. A world I was trying to drag Clara back into.
+"The mistral came in today," he said. "Cleaned the whole sky. You could see the islands. Lou wanted ice cream. I bought her ice cream. She got it on my one good jacket. I didn't even mind."
+
+A breath.
+
+"That true enough for you?"
+
+It was. It was so true it nearly broke me. And that was exactly why I'd asked. I needed to remember what I was digging *toward,* on the far side of all this rot. A world where a man buys his daughter ice cream, ruins his jacket, and the sky is clean. The world I was trying to drag Clara back into.
 
 "Why are you really calling," I said.
 
-"Because Yuri called me," Basti said, and his voice changed, went careful, went quiet, and I felt the night change with it. Yuri never calls anybody himself. Yuri sits in Kyiv listening to the world's static and only opens his mouth when the static turns into a name. "He says there's chatter. About you. Not your name — they don't have your name. But about the thing you've made. In the channels, brother. The deep ones, the ones under the ones under the ones, where the real talk happens. They know somebody built something. Somebody who can *see.* And they're frightened of it, Delta. The kind of frightened that makes people do the careless thing."
+"Because Yuri called me."
+
+His voice changed. Went careful. Went low. And I felt the night change with it.
+
+"He says there's chatter. About you. Not your name — they don't have your name, they have nothing. But about the thing you've built. It's moving through the deep channels, Delta. The ones under the ones under the ones. The hidden forums with no addresses. The throwaway threads where nobody signs anything. They know someone built something. Someone who can *see.* And it frightens them. The kind of frightened that makes people careless."
 
 "Good," I said. "Let them be frightened."
 
-"No," Basti said. "Not good. Frightened people who've spent years building something don't run. They *defend* it. And the thing you're poking — it's old, isn't it. I can hear it in your voice. You found out it's old."
+"No," Basti said. "Not good. Frightened people who've spent years building something don't run. They *defend* it. And the thing you're digging into — it's old, isn't it. I can hear it in your voice. You found out it's old."
 
-I didn't answer. With Basti you don't have to.
+I didn't answer. With Basti, you don't need to.
 
-"Be careful in the roots, brother," he said softly. "That's where the deepest ones live."
+"Be careful in the roots, brother," he said quietly. "That's where the deepest ones live. The ones who've been underground so long everyone forgot they exist."
 
-He didn't hang up right away. There was a silence with weight in it, the kind that means a man is deciding whether to say the next thing.
+He didn't hang up right away. There was a silence with weight in it. The kind that means a man is deciding whether to say the next thing.
 
-"Yuri said one more word," Basti told me finally. "He didn't want me to pass it on. He said you'd take it the wrong way." A breath. "The chatter — the people who are frightened of your machine — some of them aren't talking about it like a tool. They're talking about it like a *prize.* Like a thing they want to own. There are people out there, Delta — people who live in the same dark we came from, people with no flag and no face — who'd let the whole rotten convoy roll on if they could get their hands on the thing that sees. You understand what I'm telling you. You didn't just build a way to find her. You built something the whole dark wants now."
+"Yuri had one more word," he finally said. "He didn't want me to pass it on. He said you'd take it wrong."
 
-"I know," I said, and I did, the way you know a draught before you find the open window.
+A breath.
 
-"No, you don't," Basti said gently. "You're inside it. You can't see the size of it. I can. From out here, brother, it looks like you lit a fire to find one woman and the fire's so bright that everyone who lives in the dark just turned to look at it." A pause. "Find her fast. Before they decide they want the fire more than they fear it."
+"The people who fear your machine — some of them aren't talking about it like a tool. They're talking about it like a *prize.* Something they want to own. In the dark it already has a name. It passes from mouth to mouth. What you built has become a legend. And legends, in our world, get stolen. There are people out there who would let the convoy run to the end of the earth to get their hands on the thing that sees. You didn't build a way to find her. You built what the whole shadow world wants."
 
-The line went dead before I could answer, which was how I knew he meant it.
+"I know," I said.
+
+And I did. The way you sense a draft before you find the open window.
+
+"No, you don't," Basti said gently. "You're inside it. You can't see the scale. I can. From out here, brother, it looks like you lit a fire to find one woman. And the fire is so bright that everyone who lives in the dark just turned around to look."
+
+A pause.
+
+"Find her fast. Before they decide they want the fire more than they fear it."
+
+The line went dead before I could answer. That's how I knew he meant it.
 
 ---
 
-After he hung up I went back in, because Basti was right and that was exactly why I couldn't stop.
+After he hung up I went back in. Because Basti was right. And that was exactly why I couldn't stop.
 
-Old things are the most dangerous things. A new criminal makes new mistakes — leaves a handle in the wrong forum, reuses a name, gets sloppy, gets seen. An old one has had years to bury his — to grow over the seam, to let the soil settle, to make the first afternoon look like nothing, like weather, like the way things have always been. The further back I went, the harder it was to tell the rot from the ground it grew in. That's the genius of patience. Wait long enough and your crime becomes the landscape.
+Old things are the most dangerous. A new criminal makes new mistakes. An old one has had years to bury his. Grow over the seam. Let the soil settle. Make the first afternoon look like nothing — like weather, like the way things have always been. That's the craft of those who last. Leave nothing behind. Erase your tracks. Never sign twice with the same hand. The further back I went, the harder it became to separate the rot from the ground it grew in. That's the genius of patience. Wait long enough and your crime becomes the landscape.
 
-But the system didn't get tired and it didn't get fooled by the landscape. I'd built it to believe only proof, and proof doesn't soften with age. A thing is true or it isn't, whether it happened last night or a lifetime ago. So it kept walking backward, sealing each step with that small unbreakable seal Clara had taught me to demand — the seal that can't be argued with, that no lie survives — refusing the easy story, refusing the convenient forgetting, dragging the buried afternoons one by one back up into the light.
+But the system didn't get tired. And it didn't get fooled by the landscape. I'd built it to believe only proof. And proof doesn't soften with age. A thing is true or it isn't. Whether it happened last night or a lifetime ago. So it kept walking backward. Sealing each step with that small unbreakable mark Clara had taught me to demand — the seal no lie can survive. Refusing the easy story. Refusing the convenient forgetting. Dragging the buried afternoons one by one back into the light.
 
-And somewhere down in those years — past the convoys, past the laundered mercy, past even the Surgeon's first scarless cut — it found the trunk. The first arrangement. The seed. The actual beginning, with a date attached to it the way a tombstone has a date, the way a birth certificate has a date, because beginnings are both at once and I have never been more sure of that than I was right then.
+And somewhere down in those years — past the convoys, past the laundered mercy, past even the Surgeon's first scarless cut — it found the trunk. The first arrangement. The seed. The actual beginning. With a date attached to it the way a tombstone carries a date, the way a birth certificate carries a date, because every beginning is both at once. I have never been more certain of that than I was right then.
 
-The first thread. The first quiet afternoon when somebody, somewhere, decided that mercy was a good place to hide a knife.
+The first thread. The first quiet afternoon when someone, somewhere, decided that mercy was a good place to hide a knife.
 
-And I saw, in that first arrangement, the shape of the thing I'd have to chase next. Because the seed wasn't a man and it wasn't a place. It was a *route.* A single line drawn across a map between a place that had too much and a place that had too little, with all the world's permission to carry things along it without anyone looking inside the truck. That was the trunk. That was the oldest true thing — not money, not a name, but a road that the world had agreed not to question. Everything else had grown along it like ivy along a wall. If I wanted the body the limbs belonged to, I wouldn't find it by chasing men. I'd find it by riding the rails the mercy ran on, all the way to wherever they were carrying her now. I filed that for the morning. The roads would still be there at dawn, and so, I prayed, would she.
+And in that first arrangement I could see the shape of what I'd have to chase next. Because the seed wasn't a man. It wasn't a place. It was a *route.* A single line drawn across a map between a place that had too much and a place that didn't have enough, with the whole world's permission to move things along it without anyone looking inside the truck. That was the trunk. The oldest true thing. Not money. Not a name. A road the world had agreed not to question. Everything else had grown along it like ivy along a wall. If I wanted the body these limbs belonged to, I wouldn't find it by chasing men. I'd find it by riding the rails the mercy ran on, all the way to wherever they were carrying her now. I set that aside for morning. The roads would still be there at dawn. And so would she, I prayed.
 
-I wanted to feel triumph. The hunter's triumph, the end of the trail, the root in my hand at last. For one half of one second I did. I had it. The beginning of the thing that took her. The oldest true thing in the whole rotten tree.
+I wanted to feel triumph. The hunter's triumph. The end of the trail, the root finally in my hand. For half a second I had it. The beginning of the thing that took her. The oldest true thing in the whole rotten tree.
 
 Then the system did the small honest thing it always does. It showed me the date.
 
 ---
 
-I have a confession to make about dates, if only to myself.
+I need to confess something about dates.
 
-Most of them mean nothing. They're filing. They're the grey scaffolding the world hangs itself on so the post arrives and the bills get paid. They're forgotten the second they're read. A man could live his whole life and remember six dates with his body instead of his head — the ones that are carved into him, the ones his heart knows even when his mind's asleep.
+Most of them mean nothing. They're filing. The grey scaffolding the world hangs on so the mail arrives and the bills get paid. You forget them the second you read them. A man could live his whole life and really remember only six dates — not with his head but with his body. The ones carved into him. The ones his heart knows even when his mind is asleep.
 
-I have a few of those. The day I walked out of the old life — handed over the handle that whole channels used to whisper, killed the man I'd been with one quiet switch, and walked out into daylight that hurt. The day my mother stopped recognising my voice. And one more. One I have never said out loud to another living soul, because it was the only entirely good thing that ever happened to me and I was afraid that saying it would let the world in to spoil it.
+I have a few of those. The day I walked out of the old life. The day my mother stopped recognizing my voice. And one more. One I have never said aloud to any living person. Because it was the only entirely good thing that ever happened to me. And I was afraid that saying it out loud would let the world in to ruin it.
 
-A bar in Las Vegas that smelled of spilled bourbon and possibility, a hundred screen-lit rooms above it where my whole tribe had gathered for once into the open. A woman who told a stranger to build her a thing that only believes proof. The night the whole scattered, restless, lost mess of me went still for the first time in my life, because someone real had walked into it and switched off the noise. The month I fell in love with Clara Dubois — completely, totally, the way I fall, the way that has always destroyed me, except this time it didn't, this time it was the one true thing.
+A bar in Las Vegas smelling of spilled bourbon and something like possibility. The biggest gathering of people like us — thousands of strangers poured for one week into a desert casino hotel. Plastic badges and fake names. The one week of the year when the shadow shows its face.
 
-I know that month the way I know my own pulse. I would know it on my deathbed, at the bottom of the sea, in handwriting, in the dark.
+A woman asking a stranger to build her something that only believes proof. The night all the scattered wreckage of what I was went still for the first time in my life. Because someone real had walked into it and cut the noise.
 
-I leaned in toward the screen, toward the date the system had carried up out of all those buried years, the date the first seed of the thing that took her went into the ground. And the cold came back, the particular cold that has nothing to do with weather, the cold of a thing you already half knew and prayed against.
+The month I fell in love with Clara Dubois. Completely. Totally. The way I fall. The way that has always destroyed me. Except this time it didn't. This time it was the one true thing.
 
-The trail didn't start the year she vanished. It didn't start a year before, or two.
+I know that month the way I know my own heartbeat. I would recognize it on my deathbed. At the bottom of the sea. In handwriting. In the dark.
 
-The trail was laid the same month he and I first fell in love.
+I leaned toward the screen. Toward the date the system had carried up from the bottom of all those buried years. The date the first seed of the thing that took her went into the ground. And the cold came back. The cold that has nothing to do with weather. The cold of something you half-knew already and prayed against.
+
+The trail didn't start the year she disappeared. It didn't start one year before. Or two.
+
+The trail was laid the same month the two of us first fell in love.

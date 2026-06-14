@@ -1,126 +1,172 @@
 # Chapter 21: The Skeleton
 
-I had Basti somewhere I couldn't see him, and a fire I'd lit on purpose burning right where he was standing, and the only way I could think to keep from going mad about it was to learn the inside of the building that was about to swallow us both.
+Basti was out there somewhere. In the dark. In the middle of a fire I'd set on purpose.
 
-So that's what I did. While the night ground on and my friend stood in the dark of a city I'd run from, holding a position I'd chosen for him over his own safety, I sat in Brussels — three screens lit against a black room, a mug of coffee gone cold hours ago at my elbow, the low electric hum of the machines that never sleep — and I taught myself the bones of the place that held Clara.
+And I couldn't see him.
 
-I have to be honest about the shame of it first, because the shame was the truest part of me that night. Some part of me reached for the building plans the way a coward reaches for a map of the exits — so I wouldn't have to think about Basti. So I could fill my head with corridors and stairwells instead of the picture that kept trying to form, the one where I'd traded a piece of my own family to save the rest, and the piece was him.
+The only way not to go crazy was to memorize the building that was going to swallow us both.
 
-In the last hour I'd had to make the kind of choice that no amount of cleverness ever softens. Two fires. Two things going wrong at the same moment, in two places, and only enough of me to put out one. To save the whole thing — the case, the rescue, the slow beautiful right-way plan I'd promised Ifeoma — I'd had to let one piece of it burn. And the piece I let burn was the corner of the board where Basti stood.
+So that's what I did. The night moved. My friend held his position in a city I'd fled — a position I'd chosen for him, at the cost of his life. And I was in Brussels. Alone in the screen-glow. Learning the bones of the place that held Clara.
 
-He hadn't argued. That was the unbearable part. When I told him to hold, when I told him I couldn't pull him back yet, that I needed him exactly where the danger was thickest because pulling him would unravel everything — he'd gone quiet for one second, and then he'd said, *"Bon. Then I'll hold, fantôme. Just don't get clever and forget I'm here."* And laughed. He'd laughed. And the laugh had landed in me like a stone going into deep water, down and down, no bottom.
+The coffee had been cold for hours. I left the lights off. People like me don't turn on lights. We live in the blue, in the hum of machines. We inhabit the hours the rest of the world abandons. The hours no one's watching. The hours where the real work happens.
 
-So I did the only thing that lets a man keep functioning while someone he loves stands in a fire he lit: I got to work on the part I could control. I asked the system to show me the building.
+I have to be honest about the shame. If I'm not, I'll end up believing I'm better than I am. Part of me dove into those building plans the way a coward dives into an exit map — so I wouldn't have to think about Basti. So I could pack my skull with corridors instead of the image that kept coming back. The one where I'd traded a piece of my family for the rest. The piece was him.
+
+In the last hour I'd had to make the kind of choice no machine ever softens. Two fires. Two things breaking at once, two places at the same time, and only enough of me to stop one. To save the whole thing — the case, the rescue, the slow and careful plan I'd promised Ifeoma — I had to let one piece burn. The piece burning was the corner where Basti stood.
+
+He hadn't argued. That was the unbearable part. When I told him to hold. When I told him I couldn't pull him back. That I needed him exactly where the danger was thickest, because pulling him out would bring everything down.
+
+He went quiet for one second. Then: *"Bon. Then I hold, fantôme. But don't get clever on me. Don't forget I'm here."*
+
+And he laughed.
+
+That laugh dropped into me like a stone into deep water. Going down. No bottom.
+
+So I did the only thing that keeps a man moving while someone he loves burns in his fire. I worked the part I could control. I asked the system to show me the building.
 
 ---
 
-This was the hour the place finally stopped being a word — *hospital,* *Marseille,* *the dead end of the dead end* — and became a real thing with real rooms, one of which had Clara in it.
+That was the hour the place stopped being a word. *Hospital. Marseille. The dead end of the dead end.* It became a real thing. With real rooms. One of which held Clara.
 
-I had stood outside big dark buildings at night before, the way everyone has — a closed factory, an empty school, a hospital with its windows blind — and felt the way they refuse a man. A building like that is a wall pretending to be a face. I could stare at it for an hour and learn nothing. It gives back brick and chained doors and the particular silence of a place where the lights went out years ago and never came back. From the outside, the old hospital on Basti's dead-end street was exactly that. A blank. A held breath made of concrete.
+I'd stood before big dark buildings at night — everyone has. A shut factory. An empty school. A hospital with blind windows. And felt how they refuse you. A building like that is a wall pretending to be a face. You can stare for an hour and learn nothing. Brick. Chained doors. The silence of somewhere whose lights went out years ago and never came back.
 
-Here is the thing I'd built, as plainly as I knew how to hold it in my own head.
+From outside, Basti's dead-end hospital was exactly that. A blank. A held breath in concrete.
+
+Here is what I had built. As simply as I can say it.
 
 It could see past the face. It could read the bones.
 
-Every building that has ever existed leaves a record of itself somewhere — in the papers filed when it was built, in the drawings made when it was changed, in the thousand small bureaucratic ghosts a structure sheds over its life the way a person sheds receipts and tickets and the stubs of old days. And nothing is ever truly deleted. That was the first thing I'd learned down in the seams, the place where I'd spent my whole misspent life — among the hackers and the ghosts, the people who live in the gap between what the world thinks is gone and what is only hidden. Everything leaks. Everything is kept somewhere by someone who forgot to throw it away. A hospital especially. A hospital is one of the most documented objects human beings make, because people are born and die in it and the law wants to know exactly where. Somewhere out in the world's vast forgotten paper — the public drawers and the locked ones, the open archives and the quiet ones traded handle to handle in places that don't have addresses — the whole skeleton of that building still existed. Every floor, every corridor, every stairwell, every room and what it had once been for.
+Every building leaves a trace of itself. In the papers filed when it was built. In the drawings made when it was changed. In the thousand small ghosts a structure sheds across its lifetime. Nothing truly disappears. Nothing is ever fully erased. That's the first thing you learn where I come from. Everything leaks somewhere. Into a forgotten file. A gutted archive. A dead forum nobody visits. You just have to know where to look.
 
-And the system went and found it. All of it. Pulled the scattered ghosts of a dead hospital out of the world's forgotten drawers, the way it pulled everything, patient and bloodless, and laid them down one over another until the blank face on Basti's street turned to glass in front of me and I could see straight through it into its own ribs.
+A hospital especially. It's one of the most documented objects human beings make. Because people are born in them and die in them, and the law wants to know exactly where. Somewhere in the world's forgotten paperwork — the whole skeleton of that building still existed. Every floor. Every corridor. Every stairwell. Every room and what it had once been for.
 
-The how doesn't matter and never did. I'd made that promise to myself on the first night and I'd kept it on every night since. Only the feeling stayed with me, because the feeling was the only part that was ever mine to keep.
+The system went and got it. All of it. Pulled the ghosts of a dead hospital out of the world's forgotten drawers. Bloodless, patient. Laid them one on top of the other. Until the blank face on Basti's street turned to glass. And I could see straight through into its ribs.
 
-It felt like being given X-ray eyes for the one building on earth I needed them for.
+I won't say how. I made that promise the first night. I kept it every night since. People like me live and die by that silence. You never say the how. Never. It's the first rule and the last. The one that separates those who last from those who vanish one morning without a word.
+
+But I can say what it felt like. The feeling is the only part that still belongs to me.
+
+It felt like receiving eyes that could see through stone. For the one building on earth where I needed them.
 
 ---
 
 The hospital had six floors.
 
-I sat with that for a moment, just the number, the way a man sits with a stranger's age. Six floors and a basement, built in a confident century that believed in itself, abandoned in a tired one that didn't. It had been, in its life, the kind of place a whole neighborhood was born in. There was a maternity wing on the third floor. I noticed that and wished I hadn't. There were wards and there were operating rooms and there was a chapel, a small one, tucked at the end of the east corridor on the ground floor for the families of people who weren't going to walk out. There was a morgue in the basement, because of course there was, and that detail stayed with me not because it was grim but because it would matter later in a way I couldn't have guessed, sitting there at three in the morning with the screen-glow burning into my eyes, teaching myself a dead man's building.
+I sat with that for a moment. The way you sit with a stranger's age. Six floors and a basement. Built in a century that believed in itself. Abandoned in one that didn't.
 
-I started at the top and worked down, the way a man reads a face from the hairline.
+In its life it had been the kind of place a whole neighborhood was born in. A maternity ward on the third floor. I noticed that and wished I hadn't. Common wards. Operating rooms. A chapel — small, at the end of the east corridor on the ground floor — for the families of people who weren't walking out.
 
-Sixth floor: nothing. Old administration, offices, the rooms where a hospital does its forgetting — files, ledgers, the rubber-stamp end of human suffering. Stripped, the drawings said, before the place was even chained. Whatever had been worth taking was long gone. Dead space.
+And a morgue in the basement. Of course there was one. I'm not lingering on it to be grim. I'm lingering because that detail mattered later, in a way I couldn't have guessed, sitting there at three in the morning in the blue glow, learning a dead building by heart.
 
-Fifth, the same. Fourth, the same — wards, the long sad rooms where rows of beds had once stood, where now there'd be nothing but the marks on the floor where the beds had bolted down, like the chalk outline of a whole sleeping crowd.
+I started at the top. Worked down.
 
-Third floor: the maternity wing, and I made myself read it slowly, every room, because somewhere in the back of my skull a voice that sounded like Ifeoma was reminding me to read the *whole* thing and not just the part I could bear. Birthing rooms. A nursery. A long room with a wall of windows where, a hundred years of mornings, new mothers had held new people up to the first light they'd ever see. Now it was a dead room behind a chained door on a street with new chains on it. *You don't put new chains on the dead,* Basti had said. I was beginning to understand exactly what he meant, and exactly how much I was going to hate understanding it.
+Sixth floor: nothing. Old administration. Offices. The rooms where a hospital does its forgetting — files, ledgers, the rubber-stamped end of suffering. Stripped bare before they even chained the place. Dead space.
 
-Because there's a thing about a skeleton. A skeleton tells how a body is *supposed* to move. And when I laid the skeleton of a building over what I knew was happening inside it — when I stopped seeing brick and started seeing bones — I stopped asking *what is this building* and started asking the only question that ever matters in a place like that.
+Fifth: same. Fourth: same. Common wards. Long sad rooms where rows of beds had stood. Nothing left but the marks on the floor. The chalk outline of a whole sleeping crowd.
+
+Third: the maternity wing. I forced myself to read it slowly. Every room. Because somewhere in the back of my skull a voice that sounded like Ifeoma kept telling me to read the *whole* thing. Not just the part I could handle.
+
+Birthing rooms. A nursery. A long room with a wall of windows — where, for a hundred years of mornings, new mothers had held new people up toward the first light they'd ever see. Now: a dead room behind a chained door. On a rechaained street.
+
+*You don't put new chains on the dead,* Basti had said.
+
+I was starting to understand what he meant. And how much I was going to hate understanding it.
+
+Because here is the thing about a skeleton. A skeleton tells you how a body is *supposed* to move. Lay the skeleton of a building over what you know is happening inside it. Stop seeing brick. Start seeing bones. And you stop asking *what is this building.* You start asking the only question that matters in a place like that.
 
 *Where would I keep someone, if I were them?*
 
 ---
 
-I called Yuri, because that's exactly the kind of question Yuri was built to answer, and because I needed a voice in the room that wasn't mine and wasn't afraid the way mine was afraid.
+I called Yuri. That's exactly the kind of question Yuri was made for. And I needed a voice that wasn't mine. One that wasn't afraid the way mine was afraid.
 
-He answered on the second ring, which for Yuri is practically a warm embrace. The line clicked through three different countries before it reached him — Yuri never lets a call walk in a straight line; a straight line is a thing that can be followed — and then the hiss came down it first, the little intake of breath that means he's already turning the problem over and finding the sharp edge of it before I'd finished handing it to him.
+He answered on the second ring. For Yuri, that's close to an embrace. The static came down first. The voice blurred, like it had passed through water. People like us never talk on a line someone else might be listening to. It's in the blood. Then that small distorted intake of breath — the one that means he's already turning my problem over. Finding the sharp edge before I've finished handing it to him.
 
-"You found the inside," he said. Not a question. He could hear it in how I was breathing.
+"You found the inside," he said. Not a question. He could hear it in my breathing.
 
-"Six floors," I said. "A basement. I'm trying to think like them. Where they'd put her."
+"Six floors. A basement. I'm trying to think like them. Where they'd put her."
 
-A long pause. I heard him light something. I heard, very faintly, the eternal Kyiv soundscape behind him — a far siren, a kettle, the soft churn of fans over hardware that ran day and night, the particular hush of a man who has not opened his curtains in two years.
+A long pause. I heard him light something. And very far away — the sound world of Kyiv. A siren. A kettle. The hum of too many machines in one room. The silence of a man who hasn't opened his curtains in two years because the window is a risk he decided he could no longer take.
 
-"Not the top," he said. "Amateurs use the top. Top is a cage, yes, but a cage with one door and a long fall, and a clever prisoner with patience can do a great deal with a long fall and a great deal of patience. They are not amateurs." Another draw on the cigarette. "Not the wards. Too open. Too many windows. A person at a window is a person the world can see, and these people built their whole life around no one seeing anything."
+"Not the top," he said. "Amateurs use the top. The top is a cage. One door and a long fall — and a smart, patient prisoner can do a great deal with a long fall. These are not amateurs." Another drag. "Not the wards. Too open. Too many windows. A person at a window is a person the world can see. And these people built their whole lives on the idea that nobody sees anything."
 
 "So."
 
-"So they go *down,*" said Yuri, and I felt the cold of it before he finished. "Down is where you put a thing you do not want found. Down has no windows. Down has thick walls and one stair and the kind of silence that eats a scream before it reaches the street. If I wanted to keep a person — truly keep her, keep her for a long time, keep her while the world looked and found nothing — I would put her under the ground in a building everyone agrees is dead." A beat. "And I would chain the doors above her with new chains, and trust that no one in the world could see past brick."
+"So they go *down.*"
+
+I felt the cold of it before he finished.
+
+"Down is where you put something you don't want found. No windows. Thick walls. One stair. The kind of silence that swallows a scream before it reaches the street. If I wanted to keep someone — really keep her, for a long time, while the world searched and found nothing — I'd put her underground. In a building everyone agrees is dead." A pause. "And I'd chain the doors above with new chains. Trusting that no one could see past the brick."
 
 "Someone can," I said.
 
-"Yes." I heard something in his voice I almost never heard. Not hope. Yuri doesn't do hope. Something colder and steadier than hope, and worth more. "That, my friend, is the part they did not plan for. They built a building no one could see into. And you built a thing that sees into buildings." The hiss again, softer. "Be careful what you do with eyes like that. Every door you can see through is a door someone else, somewhere, is learning to see through too. A man who can see through walls forgets that walls are also the only thing keeping the roof off his head."
+"Yes." Something in his voice I almost never hear. Not hope. Yuri doesn't do hope. He's seen too many channels go dark, too many friends drop off one morning without a word. Something colder and more solid than hope. Worth more. "That, my friend, is the part they didn't plan for. They built a building no one could see into. And you built a thing that sees into buildings." The static, softer. "Be careful what you do with eyes like that. A man who can see through walls forgets that walls are also the only thing keeping the roof off his head."
 
-I didn't know what he meant. I would. Yuri is paranoid and Yuri is usually right and the gap between those two facts is exactly the size of the trouble I was about to be in.
+I didn't know what he meant. I would. Yuri is paranoid, and Yuri is usually right. The gap between those two facts is exactly the size of the trouble I was heading into.
 
 ---
 
 I went down into the basement.
 
-Not in person — I was still in Brussels, of course, still in a dead apartment with a dead clock and the blue wash of the screens for a moon, eight hundred miles from the salt and the rats and my friend standing in the dark. But the system took me down, the way it had taken me through every floor, and the basement was where the skeleton finally told me something true.
+Not in person. To be clear. I was still in Brussels. Still in a dead apartment with a dead clock. Nearly a thousand kilometres from the salt, the rats, and my friend standing alone in the dark. But the system took me down. The way it had taken me through every floor. And the basement was where the skeleton finally told me something true.
 
 The basement was a maze.
 
-The upper floors had been simple — long honest corridors, rooms in tidy rows, the architecture of a place that wanted to be found and used. But hospitals grow downward in a different way. Down in the dark, over a hundred years, they accrete. Boiler rooms. Storage. The morgue. Tunnels — actual tunnels, the drawings said, running out under the street to a wing that no longer existed, sealed now, dead ends in the dead end. A laundry the size of a cathedral. Rooms with no marked purpose at all, the kind of rooms a building forgets it has. And one space, near the heart of it, that the oldest drawings labeled in a careful dead hand as *records.* A vault, almost. Thick walls. One door. No windows because there was nothing for a window to look at but earth.
+The upper floors had been simple. Honest corridors. Rooms in rows. The architecture of a place that wanted to be found and used. But hospitals grow downward differently. Down in the dark, across a century, they accumulate.
 
-I looked at that room for a long time.
+Boiler rooms. Storage. The morgue. Tunnels — real tunnels — running under the street to a wing that no longer existed. Sealed now. Dead ends in the dead end. A laundry room the size of a cathedral. Rooms with no marked purpose at all, the kind of rooms a building forgets it owns.
 
-A room with thick walls and one door, in the lowest part of a building no one could see into, on a dead-end street in a city that had agreed to forget the whole block existed. A room built, a century ago, to keep paper safe from fire and damp and theft. To keep records.
+And one space, near the heart of it all. The oldest drawings labeled it in a careful, long-dead hand. One word: *archives.* Almost a vault. Thick walls. A single door. No windows — because there was nothing for a window to look out at but earth.
 
-*The evidence is in the mesh,* I thought, the way Clara always said it, the way she'd said it in my head every hour for nineteen days. *Find the genome.* And I understood, sitting there with the bones of a dead hospital glowing on my screen, that I'd been picturing her in the wrong kind of room this whole time. I'd pictured a cell. A cage. A frightened woman in a locked place, waiting to be saved.
+I stared at that room for a long time.
 
-But Clara hadn't gone into that building to be a prisoner. I knew that now, knew it the way a man knows a thing in his chest before his head will let him say it. Clara was a cryptographer who'd spent her whole brave exacting life on one idea — that the only real weapon left in a world of liars is the power to prove what's true. She didn't break things; she sealed them, locked them, made them undeniable. She hadn't let herself be taken into a cage.
+Thick walls. One door. The lowest point of a building no one could see into. On a dead-end street. In a city that had agreed to forget the entire block existed. A room built a century ago to protect paper from fire, damp, and theft. To keep records.
+
+*The evidence is in the mesh,* I thought. The way Clara always said it. The way she'd been saying it in my head every hour for days. *Follow the trace.*
+
+And I understood. Sitting there in the dark, the bones of a dead hospital glowing on my screen. I'd been picturing her in the wrong kind of room this whole time. I'd imagined a cell. A cage. A frightened woman in a locked space, waiting to be rescued.
+
+But Clara hadn't walked into that building to be a prisoner.
+
+I knew it now. Knew it in my chest. The kind of certainty that arrives long before the mind agrees to say it. Clara was a cryptographer. Her whole brave, demanding life built around one idea. In a world of lies, the only weapon left is the power to prove what is true.
+
+She hadn't let herself be taken into a cage.
 
 She'd let herself be taken into a *vault.*
 
-She'd walked into the one room in that whole dead building where the records were kept — where, I'd have bet my life on it, the records were *still* being kept, because a network that hides children inside charity needs somewhere to do its terrible bookkeeping. Somewhere thick-walled and windowless and forgotten. Somewhere off the maps, the way the worst markets in this world are always off the maps — the rooms behind the rooms, the channels under the channels, the places a man only reaches if someone who trusts him hands him the door. She'd planted herself in the middle of it, the smartest operator I'd ever known, and she'd been doing from the inside the exact thing I'd been doing from outside.
+She'd walked into the one room in that whole dead building where records were kept. Where — I would have bet my life on it — records were *still* being kept. Because a network that hides children inside charity needs somewhere to run its terrible accounting. Somewhere thick-walled, windowless, forgotten.
 
-Bleeding the truth out, drop by drop, where it could be sealed and saved.
+And she'd planted herself in the middle of it. The most brilliant operator I'd ever known. Doing from the inside exactly what I was doing from the outside.
 
-My hands were shaking. I put them flat on the desk to stop them. It didn't work.
+Bleeding the truth out. Drop by drop. Where it could be sealed and saved. Building the case, piece by piece, in the belly of the thing that wanted no trace to survive. She held the chain from inside. I was reading the bones from outside. The same hand reaching through stone.
+
+My hands were shaking. I pressed them flat on the desk to stop them. It didn't work.
 
 ---
 
-Basti's voice came through low, and the music was gone out of it again, the way it had gone the first night.
+Basti's voice came through. Low. The music gone from it again, like the first night.
 
 "Fantôme. You still with me?"
 
-"I'm here," I said. "I see it now. The inside. I see where she is."
+"I'm here. I see it now. The inside. I see where she is."
 
-"Tell me you see a way to her that doesn't go through the front, because the front is *watched,* my friend. I've been holding this corner like you asked and I will keep holding it, but I'll tell you what I'm looking at. I'm looking at a dead building and a car that is not dead, parked where no car should be, and a man in it who has not slept and is not bored, and a man who is not bored at three in the morning outside an empty hospital is a man being *paid.*"
+"Tell me you see a way to her that doesn't go through the front. Because the front is *watched,* my friend. I've been holding this corner like you asked and I'll keep holding it. But I'll tell you what I'm looking at. A dead building. And a car that is not dead — parked where no car should be parked. A man inside who hasn't slept and isn't bored. A man who isn't bored at three in the morning outside an empty hospital is a man being *paid.*"
 
-"Don't move," I said. "Whatever you see. Don't move toward it."
+"Don't move. Whatever you see. Don't move toward it."
 
-"I'm not moving." A breath. The harbor wind came through wherever he was, I could hear it tugging at the phone. "But fantôme — you remember what I said. New chains on a dead building. I keep thinking about it. The whole street is dead. The whole block. The streetlights here gave up years ago; the city forgot to keep paying the man who remembers to fix them. It is the darkest street in Marseille on purpose." He paused, and I heard him lean forward, the way he does when a thing has finally caught his eye and won't let go. "So tell me why."
+"I'm not moving." A breath. The port wind passed through wherever he was standing. I heard it pull at the phone. "But fantôme — you remember what I said. New chains on a dead building. I keep thinking about it. The whole street is dead. The whole block. The streetlights here gave up years ago. The city forgot to keep paying the man who remembers to fix them. It's the darkest street in Marseille and that is not an accident." A pause. I heard him lean forward. The way he does when something catches his eye and won't let go. "So tell me why."
 
 "Why what?"
 
-"Why," said Basti slowly, "the building is dark on every floor — every floor, fantôme, all of it black, dead as the moon —"
+"Why," said Basti, slowly, "the building is dark on every floor. Every floor, fantôme. All of it black. Dead as the moon —"
 
-And I was already looking. Already pulling the skeleton back up, already laying the dead drawing of the place over whatever the system was quietly whispering to me about the *living* thing underneath it — the difference between how the building was supposed to be and how it actually, secretly, right now, was. That was the whole trick of the thing I'd built: it listened to the silence and found the one note that didn't belong. And the answer rose up out of the dark and the dead floors with a cold I felt all the way to my teeth.
+And I was already looking. Already pulling the skeleton back up. Already laying the dead drawing of the place over what the system was quietly whispering to me about the *living* thing underneath. The difference between what the building was supposed to be and what it actually was, right now, in this moment. A building, like a man in hiding, always betrays itself on the one detail it forgot to silence.
 
-The hospital was dead on every floor but one.
+The answer rose out of the dark with a cold I felt all the way to my teeth.
 
-Somewhere down in those bones, behind the new chains and the dead street and the man being paid not to be bored, a single floor of an abandoned hospital had power running to it. Light. Warmth. A heartbeat of current in a corpse that had been cold for years.
+The hospital was dead on every floor. Except one.
+
+Somewhere down in those bones — behind the new chains, the dead street, the man being paid not to be bored — a single level of an abandoned hospital was drawing power. Down at the bottom. The basement. Light. Heat. A pulse of current in a body that had been cold for years.
 
 Someone was keeping the lights on.
 

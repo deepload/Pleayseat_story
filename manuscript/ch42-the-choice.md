@@ -1,102 +1,172 @@
 # Chapter 42: The Choice
 
-For a long moment nobody in the room breathed.
+For a long moment, nobody breathed.
 
-The name sat on the screen — not Clara's name, the *other* one, the one the machine had pulled out from under the green door like a stone turned over in the dark, the protected hand none of us had let ourselves see. It had been hiding the way men like him always hide: behind shell handles, behind dead channels, behind six layers of other people's silence. And below it, the thing that mattered more than any name on earth: a line. A thin patient line that ran past the mole, past the convoy, past everything we'd spent two weeks chasing through forums that don't have addresses and rooms that don't have doors, and ended in a single place.
+The name sat on the screen. Not Clara's. The *other* one. The name the machine had dragged up from the deep the way you turn over a rock in the dark and find something pale and writhing underneath. The protected hand none of us had let ourselves imagine.
+
+It had been hiding where those men always hide. Behind false names. Behind more false names stacked on top of those. On the kind of encrypted channels that change addresses every night so you can never find them twice.
+
+And below the name, the thing that mattered more than anything else: a line. Thin. Patient. It ran past the mole, past the convoy, past everything we'd spent seven days hunting. And it ended at exactly one place.
 
 The dead hospital. The server room. The woman.
 
 They were going for Clara. Tonight. Now.
 
-"How long," I said. My voice came out flat, a stranger's voice, the voice of a man holding very still so he doesn't fall apart in front of people who need him not to.
+"How long," I said.
 
-Yuri didn't answer right away, which was its own answer. He bent into the screen, the hood swallowing his face, blue light pooling in the hollows of it, and his hands moved across the keys the way they'd been moving all night, and the room waited, and the harbour breathed through the cracked glass the way it had been breathing all night too, in, out, indifferent, ancient. Three days of cold coffee in paper cups stood guard along the windowsill like spent shell casings. Somewhere under the floor a stack of machines hummed their one flat note, the sound of every night I'd ever spent awake in the seams of the world.
+My voice came out flat. A stranger's voice. The voice of a man holding very still so he doesn't fall apart in front of people who need him not to.
 
-"They're already moving," he said. "Two cars. Out of the north of the city. They'll be at the building inside the hour." He looked up. The thing in his eyes I'd never seen there before. "Maybe less."
+Yuri didn't answer right away. That was already an answer. He bent into the screen, his hood swallowing his face, the blue light pooling in the hollows under his eyes — the eyes of a man who hadn't slept in Kyiv and hadn't slept here either. His hands moved across the keys. Outside, the harbour breathed through the cracked glass the way it had breathed all night. Indifferent. Old.
 
-An hour. Maybe less. After two weeks. After seven sleepless days in Brussels building a thing to walk me across a continent to her. After a dead drop and a key and a date only the two of us knew. After every door the system had ever opened for me, every silence it had found her heartbeat in, every mile it had narrowed down from a whole country to one street to one rotten building above the water — after all of it, it came down to this. Sixty minutes. A handful of grains running out of a glass while I stood and watched them fall.
+"They're already moving," he said. "Two cars. Out of the north of the city. They'll be at the building in half an hour."
 
-"Then we go," Basti said. He was already up, already moving, already the boots-on-the-ground man he'd been his whole life, the smuggler-turned-locksmith who'd never once in twenty years met a door he respected. "We go now. We get there first. I've got the van two streets over, I can have us at that building in—"
+He looked up. Something in his eyes I'd never seen before.
+
+"Maybe less."
+
+Twenty minutes. Maybe less.
+
+After seven sleepless nights in Brussels. Cold coffee in the bottom of cups. The warm smell of machines that hadn't slept either. Building something that would walk me across a continent to her. After a dead drop and a key and a date only the two of us ever knew. After every door the system had opened for me. After every mile narrowed down — a whole country reduced to one street, to one single rotting building above the water.
+
+It all came down to this. Twenty minutes. A handful of grains in a glass while I stood and watched them fall.
+
+"Then we go," Basti said.
+
+He was already up. Already moving. Already the field operator he'd always been — the smuggler turned locksmith who in twenty years had never once met a door he respected.
+
+"We go now. We get there first. I've got the van two streets over, I can have us at that building in—"
 
 "Basti."
 
-He stopped. He heard it. They all heard it. I don't know what was in that one word — his name, said the way a man says a name when he's about to take something from someone — but it stopped him cold with his hand already on his jacket.
+He stopped. He heard it. They all heard it. I don't know what was in that single word — his name, said the way you say a name when you're about to take something from someone — but it stopped him cold with his hand already on his jacket.
 
-I was looking at the screen. Not at the name. At the other thing. The thing I'd built this entire machine to hold, the thing I'd poured every crumb of the beast into, drop by bleeding drop through two weeks of screen-lit nights — the whole shape of PHANTOM MERCY, laid out in the dark, every node and every line, every handle and every dead address and every dirty token, ready.
+I was looking at the screen. Not at the name. At the other thing. The thing I'd built this entire machine to hold. The thing I'd poured every piece of the beast into, drop of blood by drop of blood — the whole shape of PHANTOM MERCY, laid out in the dark. Every node. Every line. Every handle and dead address and dirty connection.
+
+Ready.
 
 Ready to do the one thing I'd promised Clara I would do.
 
-And I understood, all at once, with a cold that started in my chest and went out to my fingertips, what the machine had really put in front of me.
+And I understood all at once, with a cold that started in my chest and ran to the ends of my fingers, what the machine had set down in front of me.
 
-It wasn't just a name. It was a choice. And there was only enough of me, of us, of *time*, to make it once.
+Not just a name. A choice. And there was only enough of me, of us, of *time*, to make it once.
 
 ---
 
-Here is what I saw, in plain words, with no wrapping left on it, because there was no time left for wrapping.
+Let me say it plainly. No wrapping. Because there's no room left for wrapping.
 
-I had two things in my hands, and I could close my hands around only one.
+I had two things in my hands. I could only keep one.
 
-In the one hand: the takedown. Everything Clara had bled for. Two weeks, two years, the whole architecture of the thing that hides child trafficking behind the white vans of mercy. The twelve names. The 2,847 movements of dirty money, traced through laundromats that live in the dark places of the wire where money goes to forget where it came from. The six places the convoys stopped to breathe. Forty-seven children. The whole beast, finally pinned and labelled and *provable*, sitting in the system like a held breath, the evidence chained and sealed the way Clara had taught me a thing has to be sealed if it's going to mean anything when the lawyers come. If I committed everything I had — every connection, every handle in the mesh, every ghost and fixer and washout in my found-family standing ready in five countries with their own screens lit and their own coffee going cold, every favour and every debt and every ounce of the machine's tireless attention — in this hour, while the network was still moving and still careless and still didn't know we could see it, I could end it. All of it. Not a limb. The whole reaching thing, exposed at once, dragged out of the seams it crawled through and into the daylight, in the only window we'd ever get, evidence clean enough to survive a courtroom and a hundred lawyers paid to make it disappear. The case Clara died — almost died — to carry out of that building. The thing she let herself be *taken* to finish.
+In one hand: the takedown. Everything Clara had bled for. Seven days. Two years. The whole architecture of the thing that hides child trafficking behind white vans of mercy.
+
+The twelve names. The 2,847 movements of dirty money, laundered under donations, passed from ghost hand to ghost hand until it smelled clean. The six relay points where the convoys stopped to breathe. Forty-seven children.
+
+The whole beast. Finally pinned. Labelled. *Provable.* Sealed in the system, timestamped, untouchable.
+
+I could spend everything in this hour. Every contact. Every member of my found family across four countries. Every stolen archive. Every ounce of the machine. While the network was still moving, still careless, still unaware we could see it. And end it. Not a limb. The whole thing, exposed at once. The evidence clean enough to survive a courtroom, clean enough to survive a hundred lawyers paid to make it disappear.
+
+The case Clara had nearly died to carry out of that building. The thing she had let herself be *taken* to finish.
 
 And in the other hand: her.
 
-Just her. One woman in a server room under a dead hospital, holding a chain of truth together with her bare hands while two cars full of men came for her in the dark. To reach her in time — to bend everything toward that building, the van, the family, the machine's whole attention, the favours, the reach — was to take all of it off the takedown. The window would close. The network would feel the floor move under it, throw the kill switch on everything, and scatter back into the seams it crawled out of, into the dead channels and the burner handles and the silence, and we would not get this hour again, not ever, and the twelve names would become smoke and the convoys would roll on and the next forty-seven children would never have a man with a machine looking for them at all.
+Just her. One woman in a server room under a dead hospital, holding a chain of truth together with bare hands while two cars came for her in the dark.
 
-That was it. That was the whole of it. The trap they'd built without knowing they'd built it, the cruellest math in the world.
+To reach her in time meant pulling everything off the network. Bending the van, the family, the machine, every favour — all of it toward that one building. The window would close. The network would feel the ground shift and scatter. It would cut everything, kill its machines, vanish the way a message vanishes when you wipe it clean.
+
+We would never have this hour again. Never. The twelve names would become smoke. The convoys would keep rolling. And the next forty-seven children would have no one looking for them.
+
+That was it. The trap they'd built without knowing they were building it. The cruelest math in the world.
 
 The mission, or the woman.
 
-I could not have both.
+I couldn't have both.
 
 ---
 
-"There has to be a way to do both," Basti said. He'd read it off my face. He always could. "Split it. You take the case, I take the building. Yuri runs the wire. We don't have to—"
+"There has to be a way to do both," Basti said.
 
-"We do." Yuri, quiet, terrible. He'd already done the arithmetic; he always did it first, and he was always right, and I hated him for it the way a man hates the friend who tells him the truth. "There's one window. One hour of them not knowing we can see them. The moment we move on the building, they know. The moment we move on the network, they know. Either way, the other one closes." He looked at me, and for once there was no calculation in it at all, only a man who'd spent his life listening to dead air watching another man stand at the edge of the worst thing. "He knows, Basti. Look at him. He already knows."
+He'd read it off my face. He always could.
+
+"We split it. You take the case, I take the building. Yuri holds the line. We don't have to—"
+
+"We do."
+
+Yuri. Quiet. Terrible. He'd already run the numbers. He always ran them first. He was always right, and I hated him for it the way you hate the friend who tells you the truth.
+
+"There's one window. Half an hour where they don't know we can see them. The moment we move on the building, they know. The moment we move on the network, they know. Either way, the other one closes."
+
+He looked at me. For once, no calculation in it. Just a man watching another man stand at the edge of the worst thing he'd ever have to do.
+
+"He knows, Basti. Look at him. He already knows."
 
 I knew.
 
-I wanted to have weighed it. I wanted there to have been some clean calculus, some noble sum where the children outvoted the woman and the mission won and I became, finally, in the last hour, the man who finishes what he starts — the man Clara always saw in me before I could see him myself. *Find the genome. Save the children.* Her words. Her whole heart in five words, signed with that little lowercase delta that meant *I am still here, keep going, don't stop for me.* She had told me, in the dead drop, in the protocol, in every fragment of her that had reached me across two weeks of dark, what she wanted. *The children are moving. I'm inside. Don't stop.* She had let herself be taken so the case could be finished. She had spent herself like a coin for it. If I burned her down to her last hour to save one woman — even her, even the only woman who was ever *real* — I was spitting on everything she'd chosen. I was making her sacrifice a waste. I was being, one final time, the man who falls in love with the thing in front of him and forgets the target.
+I wanted to have weighed it properly. I wanted a clean calculation, some noble sum where the children outvote the woman and the mission wins and I become, finally, at the last hour, the man who finishes what he starts. The man Clara had always seen in me before I could see it myself.
 
-That was the argument. That was the clean one. I turned it over in the dark and it was a good argument and it was true and I had a great deal of respect for the man who could have made it and lived.
+*Find the genome. Save the children.* Her words. Her whole heart in five words, signed with that little lowercase δ that meant: *I'm still here. Keep going. Don't stop for me.*
+
+She had let herself be taken so the case could be finished. She had spent herself like a coin. If I burned her down to her last hour to save one woman — even her, even the only woman who'd ever been *real* — I was spitting on everything she'd chosen. I was making her sacrifice a waste. I was being, one final time, the man who falls in love with what's right in front of him and forgets his target.
+
+That's the argument. The clean one. I turned it over in the dark. It was a good argument. It was true. And I have great respect for the man who could have held it and survived.
 
 I am not that man.
 
 ---
 
-Here is the thing about me, the thing I'd spent this whole account circling sideways, and now there was no time left for sideways and it came out straight.
+Here is the truth about me. The thing I'd been circling sideways this whole time. And now there's no more time for sideways, so it comes out straight.
 
-I used to break things. That was the truth of me. For money, for principle, for the thrill, and — too often, God, too often — to impress a woman I'd already half-forgotten by the next city. I was a name in the underground once, a handle whispered in rooms no one can find on any map, a legend to people who live in the seams and a ghost to everyone else. I broke into vaults and lives and other people's certainties and I walked out alone and I went dark when the feeling faded, and I told myself it was freedom. I told myself the lone wolf was a noble animal. I have a family scattered across a continent — a sysadmin in Lagos who carried me when my own infrastructure was burning, a smuggler in this room who'd cross a border for me, a paranoid genius in Kyiv who's always right because he trusts nothing and no one, an ex in Tel Aviv who still picks up at three in the morning — and every one of them is a person I let down once, badly, and who loved me anyway. That's the wreckage. That's the man.
+I used to break into things. For money. For principle. For the thrill. And — too often, God, far too often — to impress a woman I'd already half-forgotten by the time I reached the next city.
 
-And the famous flaw, the thing that broke every good thing I touched: *you fall in love with everything you build.* Clara said it like a complaint and didn't mean it like one. I fall in love. All the way. I lose the target in the feeling. It scattered me for twenty years.
+I always found the door others thought was shut. A vault, a life, another man's certainty. And I'd walk out alone. I'd go dark when the feeling faded. I told myself that was freedom.
+
+In our little world, people thought I'd gone straight. On the old buried channels, in those dark rooms where people in the trade speak low and careful, my handle got whispered the way you whisper about the dead. I told myself the lone wolf was a noble animal.
+
+I have a family scattered across a continent. People who live the way I live, in the seams of the world. A man in Lagos who watches my machines and carried me when I needed it. A smuggler in this room who'd cross any border for me. A paranoid genius in Kyiv who is always right. An ex in Tel Aviv who still picks up at three in the morning. And every one of them is someone I betrayed once, badly, and who loved me anyway. That's the wreckage. That's the man.
+
+And the famous flaw. The thing that broke everything beautiful I ever touched. *You fall in love with everything you build.* Clara said it like a complaint without meaning it as one. I fall in love. Completely. I lose the target in the feeling. It scattered me for twenty years.
 
 But.
 
-But the machine in front of me had been built, every line of it, to cover exactly that flaw. To turn the world over while I slept, to crawl the dark places I was too tired or too broken to crawl, to see the seam I couldn't, to refuse to fall in love and refuse to get tired and refuse to look away — to be the cold patient eye that would let a grieving man finally aim his whole ruined heart at *one* thing and not forget it. I'd built it so the flaw could become focus. So that for once, for the first time in my miserable, glittering, wasted life, the man who loved too completely could love completely *and* finish what he started.
+But the machine in front of me had been built for exactly that. Every line of it, written in the dark, the fan and the keyclick the only sounds. Built to cover precisely that flaw. To turn the world over while I slept. To see the gap I couldn't see. To refuse to fall in love, refuse to get tired, refuse to look away. To be the cold patient eye that would let a man in grief aim his whole heart at *one* thing for once without losing it.
 
-And now the thing I'd built was showing me, without mercy, without apology, that the choice it had been built to dissolve was the one choice it couldn't make for me.
+I'd built it so the flaw could become focus. So that once — the first time in my wasted life — the man who loved too much could love entirely *and* finish what he'd started.
 
-Because the machine could find the seam. It could not tell me who I was.
+And now the machine was showing me, without mercy, that the one choice it had been built to dissolve was the only choice it couldn't make for me.
 
-It could narrow a country to a street. It could not narrow my own heart to a single decision and live with it afterward. That part — the part where I stood in the blue dark with the harbour breathing and the servers humming under the floor and sixty grains of sand left and decided, with my own body, who I had become — that part was never going to belong to a thing that couldn't love me back.
+The machine could find the gap. It couldn't tell me who I was.
 
-That part was mine. The only part that was ever truly mine.
+It could narrow a country to a street. It couldn't narrow my heart to a single decision and live with it afterward. That part — standing in the blue dark with twenty grains of sand left and deciding, with my own body, who I'd become — that would never belong to something incapable of loving me back.
+
+That part was mine. The only part that had ever been truly mine.
 
 ---
 
-I thought of her face. Not the case, not the children, not the twelve names — her *face*. The way she looked at DEFCON in 2023 across a hotel bar full of liars and operators and people working three handles at once, the only honest thing in the room, looking at me like she could already see the man under the wreckage and had decided, against all sense, to wait for him to show up. The way she laughed when I was wrong, which was a gift, because most people only laughed when I was right. *She loved anything that wouldn't lie.* She would have stood at this exact crossroads and chosen the children. I knew it the way I knew my own name, the name I'd kept buried this whole time because some things a man only says to the person he'd burn the world for.
+I thought about her face. Not the case. Not the children. Not the twelve names. Her *face*.
 
-She would have chosen the mission. She'd have hated me for choosing her. She'd have been *furious*, in that cold clipped DGSE way, the fury of someone who'd spent her whole life believing that someone has to protect the children and the someone is always you and the cost is always your own life and that's simply the arithmetic and you don't get to be loved out of it.
+The way she looked at me that summer of 2023, in Las Vegas, at the big gathering where thousands of our kind descend on a casino hotel once a year. Where people take the stage to reveal the backdoors they've found in the world's locks. Where nobody gives a real name, where badges get traded like carnival masks.
+
+Across the hotel bar, in all that noise of people hiding from each other, she'd been the only honest thing in the room. Looking at me like she could already see the man under the wreckage. And had decided, against all good sense, to wait for him to show up.
+
+The way she laughed when I was wrong. That was a gift. Most people only laugh when you're right. *She loved anything that wouldn't lie.*
+
+She would have stood at this exact crossroads and chosen the children. I knew it the way I know my own name — the name I've kept buried behind the handle, behind all the stacked false identities. Because there are things you only say to the person you'd burn the world for.
+
+She would have chosen the mission. And she'd have hated me for choosing her. She'd have been *furious*. That cold, clipped way she had — the fury of someone who'd spent her whole life believing that someone has to protect the children. That the someone is always you. That the cost is always your life. That this is simply the arithmetic. That love doesn't buy you a way out.
 
 She would have chosen the children. And that, exactly that, was why I couldn't let them have her.
 
-Because somebody has to refuse the arithmetic. Somebody has to be the one who says *no, not this one, not her, the math is monstrous and I will not solve it the way it wants to be solved.* Clara had spent her entire life being the one who paid. Letting her pay the last coin too — letting her sacrifice complete itself while I stood here and called it noble — that wasn't redemption. That was just the old me wearing a better coat. The man who breaks things, who walks out alone, who goes dark, who lets the people he loves spend themselves down to nothing while he chases the bright thread of the mission.
+Because someone has to refuse the arithmetic. Someone has to say: *no, not this one, not her, the math is monstrous and I won't solve it the way it wants to be solved.*
 
-I didn't build a machine for seven sleepless nights beside a mind that never slept to become, at the last hour, the man who let Clara die *right*.
+Clara had spent her whole life being the one who paid. Letting her pay the last coin too — letting her sacrifice complete itself while I stood here and called it noble — that wasn't redemption. That was the old me in a better coat. The man who breaks in and walks out alone. The man who lets the people he loves spend themselves down to nothing while he chases the bright thread of the mission.
+
+I hadn't built this machine, night after night, alongside a mind that never slept, to become at the last hour the man who let Clara die *correctly*.
 
 I built it to bring her home.
 
-The network would scatter. The window would close. The twelve names would become smoke and I would hunt them again, slower, dirtier, through every dead channel and dark forum and burned handle, for years if I had to, with the family I'd made and the machine I'd built and the cold patient eye that doesn't forget. PHANTOM MERCY was a limb, not the body — I'd felt that all night, the larger thing breathing behind it, the protected hand reaching across borders that one held breath of a takedown was never going to close around anyway. There would be another window. There would be another hour. There would be more nights.
+The network would scatter. The window would close. The twelve names would become smoke. And I'd hunt them again. Slower. Dirtier. Through dead forums and channels that die each night and are reborn somewhere else under another name. For years if I had to. With the family I'd made and the machine I'd built and the cold eye that doesn't forget.
+
+PHANTOM MERCY was a limb, not the body. I'd felt that all night — something larger breathing behind it, a protected hand reaching beyond borders that this one takedown was never going to close around anyway.
+
+There would be another window. Another hour. More nights.
 
 There would only ever be one Clara.
 
@@ -106,18 +176,28 @@ There would only ever be one Clara.
 
 He went still.
 
-"Pull everything off the network. Everything. Every contact, every handle, every line, the whole mesh — I want it on the building. I want it on the road they're driving in on. I want every grain of sand we have left between those two cars and that server room." My own voice. Steady. Mine. "We're not taking the beast tonight. We're taking *her.*"
+"Pull everything off the network. Everything. Every contact, every line, the whole mesh. I want it on the building. On the road they're driving in on. I want every grain of sand we have left between those two cars and that server room."
 
-The room understood at the same instant. I saw it land on Basti like a sunrise — he was at the door before I'd finished, keys already in his fist, the smuggler who'd never respected a door come fully, gloriously alive. I saw it land on Yuri as something quieter and harder, a man being asked to throw away two years of the cleanest work of his life on one hour and one woman, and I saw him decide, in the space of a single breath, that he'd do it, because I'd asked, and because some part of him — some part of every one of us who'd lived our whole lives in the dark, trading silence for silence — had been waiting his whole paranoid life for someone to choose a person over a prize and mean it.
+My own voice. Steady. Mine.
 
-"You're sure," Yuri said. Not a question. He just wanted me to carry it with my body.
+"We're not taking the beast tonight. We're taking *her*."
 
-"I'm not sure of anything," I said. "I never have been. But I'm not the man who finishes the mission and loses the woman. I had twenty years to be that man and I'm done."
+The room understood at the same instant. I watched it land on Basti like a dawn breaking — he was at the door before I'd finished, keys already in his fist. The smuggler who'd never respected a door, back to full and glorious life.
 
-I turned to the screen — to the whole beast laid out in the dark, the held breath, the case that would survive a courtroom, Clara's two years of bleeding work, all of it sitting there waiting for me to spend it — and I reached out, and with one motion, I let it go.
+I watched it land on Yuri, quieter and harder. A man being asked to kill the switch on two years of the cleanest work of his life, for one hour and one woman. And I watched him decide, in the space of a single breath, that he'd do it. Because I'd asked. And because some part of him — some part of every one of us who'd lived our whole lives in the dark — had spent his whole paranoid life waiting for someone to choose a person over a prize. And mean it.
+
+"You're sure," Yuri said.
+
+Not a question. He just wanted me to carry it with my body.
+
+"I'm not sure of anything," I said. "I never have been. But I'm not the man who finishes the mission and loses the woman. I had twenty years to be that man. I'm done."
+
+I turned to the screen. To the whole beast laid out in the dark. The case that would survive a courtroom. Clara's two years of bleeding work. All of it sitting there, waiting for me to spend it.
+
+I reached out. And with a single gesture, I let it go.
 
 I chose her.
 
-I chose her over the mission and over the math and over the cold clean argument and over the woman she'd have wanted me to be, and the instant I committed — the instant the choice left my hand and became a thing the world could no longer take back —
+I chose her over the mission, over the math, over the clean cold argument, over the woman she'd have wanted me to be. And the instant that choice left my hand —
 
 every screen in the room went black at once.
