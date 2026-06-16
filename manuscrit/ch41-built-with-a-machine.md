@@ -186,6 +186,6 @@ Parce que la ligne ne se terminait pas sur un traître qu'on pourrait cueillir �
 
 Elle se terminait sur Clara.
 
-La vraie cible, cette nuit, n'avait jamais été les enfants. Ni le convoi. Ni l'homme derrière la porte verte.
+La vraie cible, cette nuit, n'avait jamais été les enfants. Ni le convoi. Ni la taupe derrière la porte verte.
 
 C'était la seule personne vivante à avoir vu le tableau tout entier — et ils étaient sur le point de l'atteindre les premiers.

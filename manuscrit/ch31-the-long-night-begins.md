@@ -140,9 +140,7 @@ Nous étions un homme et une femme qui s'aimaient. Aussi longtemps que le fil re
 
 — Le mois d'août, dis-je.
 
-Une ville du désert. Tout en néons et en mirages. Qui sentait la cigarette et l'argent des autres. Le grand rendez-vous de l'année. Des milliers de gens de mon espèce entassés dans un hôtel-casino. Des pseudos à la place des noms. Des gens qui vivent dans le noir toute l'année et viennent une fois l'an se reconnaître à la lumière. Montrer sur une scène la faille qu'ils ont trouvée, comme un magicien révèle son tour.
-
-Et une femme au dernier rang qui corrigeait l'orateur à voix haute. En français. Comme si elle lui rendait service.
+Une ville du désert, tout en néons et en mirages. Le grand rendez-vous de l'année, les gens de mon espèce qui ne sortent du noir qu'une fois l'an. Et une femme au dernier rang qui corrigeait l'orateur à voix haute. En français. Comme si elle lui rendait service.
 
 La ligne est restée silencieuse. J'entendais, faiblement, derrière elle, un bourdonnement. Le bourdonnement profond, patient, d'une pièce pleine de métal froid. Cette odeur que je connais par cœur. L'ozone, la poussière chaude, le plastique des serveurs qui ne dorment jamais. La pièce où la chaîne est gardée. La pièce qu'elle ne quitterait pas.
 

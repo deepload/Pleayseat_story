@@ -82,11 +82,11 @@ Je les ai écrits. À la main. Sur du papier. Loin de l'écran, loin de tout ce 
 
 Onze d'entre eux, je les connaissais déjà. Ou à moitié. Ou j'en avais senti la forme dans le noir. Les écrire, c'était remettre des os en place. Ça faisait mal. Mais c'était la douleur d'une chose enfin réparée.
 
-Pendant que j'écrivais, les autres veillaient. Dispersés dans leurs fuseaux. Tissés dans la nuit avec moi, comme toujours. La famille qui ne dort jamais en même temps. Quand l'un ferme les yeux, un autre prend la garde.
+Pendant que j'écrivais, les autres veillaient. Tissés dans la nuit avec moi, comme toujours. La famille qui ne dort jamais en même temps. Quand l'un ferme les yeux, un autre prend la garde.
 
 Ifeoma veillait, à Lagos. Une ligne discrète ouverte entre nous. Nettoyée, vérifiée de ma main depuis que le Chirurgien avait lâché son piège sur nos communications — ce poison qui change un message d'ami en cheval de Troie. Depuis, on ne se croyait plus sans un mot de passe convenu de vive voix. Cette ligne ne s'était pas tue depuis des jours. Comme Ifeoma veillait sur moi depuis des années. Une sœur qui a décidé que tu n'as pas le droit de mourir pendant sa garde.
 
-Yuri était quelque part à Kyiv. Méfiant, et il avait raison, comme toujours. Comme ce qui m'avait sauvé la vie deux fois. Un gars qui change de pseudo et de ligne trois fois par nuit. Qui ne fait confiance aux gens qu'une fois qu'ils sont morts. Et encore.
+Yuri, lui, avait traversé pour ça. Quitté Kyiv et ses lignes sûres pour cet appartement pourri au-dessus du port — ce qui ne lui ressemblait pas, ce qui disait tout. Méfiant, et il avait raison, comme toujours. Comme ce qui m'avait sauvé la vie deux fois. Un gars qui ne fait confiance aux gens qu'une fois qu'ils sont morts. Et encore.
 
 Et Noa avait répondu, des heures plus tôt. Depuis Tel-Aviv. Le fantôme de l'homme que j'avais été. Peut-être la seule personne qui ait jamais aimé cet homme-là exprès. *Fais attention à celui-ci,* avait-elle dit avant de raccrocher. *Quand tu trouves la pourriture, elle n'est jamais où tu crois. Jamais là-bas, dehors. Toujours à la table.*
 

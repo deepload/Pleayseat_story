@@ -118,7 +118,7 @@ Et puis, parce qu'elle me connaissait — mieux que moi-même —, elle avait é
 
 *Ne fais pas confiance à la station de Marseille.*
 
-J'avais ce fragment depuis plusieurs nuits. Je l'avais déjà payé. Je connaissais déjà le visage qu'il désignait. Le médaillon. La fille. L'ami qui m'avait offert une chaise au lieu d'une cellule.
+J'avais ce fragment depuis plusieurs nuits. Je l'avais déjà payé. Je connaissais déjà le visage qu'il désignait. Le médaillon. La fille. L'amie qui m'avait offert une chaise au lieu d'une cellule.
 
 Mais le relire là, dans le message entier, dans *sa* voix, avec tout le reste de la vérité derrière — il tombait autrement. Il tombait comme une main sur l'épaule. *Je sais ce qu'il t'en coûtera de croire ça*, disait la ligne, sous les mots. *Crois-le quand même. Pardon. Je t'aime assez pour te forcer à haïr quelqu'un que tu aimes.*
 

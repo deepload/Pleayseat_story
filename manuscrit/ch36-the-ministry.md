@@ -106,6 +106,8 @@ La chose la plus précieuse de la terre, cette nuit-là, dans cette ville. Le ge
 
 Et je compris, d'un froid qui me prit la poitrine et descendit jusqu'aux mains, que Marchetti le comprenait aussi. Que chaque mot prudent m'avait conduit jusqu'à cet instant. Doucement. Avec lassitude.
 
+Il l'avait déjà, pourtant. Le dossier. Je le lui avais poussé des nuits plus tôt, quand le Chirurgien défaisait ma maison fil à fil — scellé, entier, à l'abri derrière son drapeau. Mais scellé de la main de Clara. Un coffre qu'il gardait sans pouvoir l'ouvrir, verrouillé par une clé que je portais seul. Ce qu'il me réclamait maintenant, ce n'était pas le coffre. C'était la clé. La preuve déverrouillée, nue sur sa table — celle qu'il pourrait poser devant les hommes qu'il devait réveiller.
+
 — Vous voulez la preuve, dis-je.
 
 La ligne resta très silencieuse.

@@ -156,7 +156,7 @@ Alors voici où je suis censé conclure que c'est fini.
 
 Ça ne l'est pas. C'est la dernière chose vraie que j'aie. Je l'ai gardée pour la fin. Comme on garde la seule chose vraie pour le moment où l'on ne peut plus continuer sans la dire.
 
-L'homme derrière la porte verte est allé en prison. Le « philanthrope » est allé en prison. Douze hauts fonctionnaires. Quatre pays. Tout le membre pourri, tranché net et forcé de se tenir debout dans la lumière. Mais un membre n'est pas un corps.
+La taupe derrière la porte verte est allée en prison. Le « philanthrope » est allé en prison. Douze hauts fonctionnaires. Quatre pays. Tout le membre pourri, tranché net et forcé de se tenir debout dans la lumière. Mais un membre n'est pas un corps.
 
 Je l'ai appris dans le noir de la pire nuit. Quand la chose que j'avais construite a parcouru l'esprit même de l'ennemi et m'a dit, froide et certaine : les hommes sous l'hôpital ne fuyaient pas devant nous. Ils fuyaient devant une horloge à eux. Devant une main plus haut dans la chaîne, qui se penchait, qui tirait des ficelles que je ne pouvais pas voir.
 

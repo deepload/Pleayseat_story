@@ -34,6 +34,8 @@ Je l'avais tenue comme on tient la lettre de quelqu'un déjà parti. Je savais c
 
 C'était le dossier. Le dossier entier. Propre, complet, recevable. La chose qui mettrait des hommes en costume dans des cellules. La chose qui ramènerait les enfants, pas seulement chez eux, mais devant la loi. Pour qu'aucun avocat habile ne puisse jamais se lever et dire que j'avais inventé tout ça dans mon chagrin.
 
+Son message, je l'avais ouvert plus tôt cette nuit-là. Sa voix. La carte des relais. Le *viens me trouver*. Mais le message n'était que le seuil. Dessous, scellé plus profond, dormait le dossier lui-même — la preuve entière. Une seconde porte derrière la première. Et le même cœur pour seule clé.
+
 Mais je ne pouvais pas entrer.
 
 Elle l'avait scellé. Pas avec un mur. Un mur, je l'aurais franchi. Dans mon ancienne vie, dans mes années folles, je gagnais ma place en ouvrant ce que d'autres croyaient verrouillé. Un sourire et trois bricoles dans la poche.

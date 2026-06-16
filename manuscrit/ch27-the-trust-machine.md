@@ -132,7 +132,7 @@ Et il pouvait encore réduire la pire confession de ma vie à un problème d'ent
 
 Ce qu'il y a d'exaspérant avec Basti, c'est qu'il a généralement raison.
 
-J'ai pensé à Yuri, là-haut à Kyiv. Lui aurait dit le contraire. *Ne fais confiance à rien, tout le monde est retourné, ton téléphone t'écoute et ton frigo aussi, coupe tout, débranche, on repart de zéro.* Lui qui changeait de pseudo comme on change de chemise, qui n'allumait jamais deux fois le même appareil dans la même ville. Ce soir, à sa manière paranoïaque, il allait être plus dans le vrai qu'il ne l'avait jamais été de sa vie.
+J'ai pensé à Yuri, là-haut à Kyiv. Lui aurait dit le contraire. *Ne fais confiance à rien, tout le monde est retourné, ton téléphone t'écoute et ton frigo aussi, coupe tout, débranche, on repart de zéro.* Ce soir, à sa manière paranoïaque, il allait être plus dans le vrai qu'il ne l'avait jamais été de sa vie.
 
 J'ai pensé à Ifeoma, à Lagos. Elle aurait prié pour moi. Puis elle aurait discrètement abattu trois heures de travail pour réparer ce que j'avais cassé. Comme toujours. Le centre moral d'une chose qui n'avait aucune raison d'en avoir un.
 

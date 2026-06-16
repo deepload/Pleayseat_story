@@ -6,6 +6,8 @@ J'y vivais depuis des heures. Nous tous. L'appartement au-dessus du port s'étai
 
 Basti à la fenêtre, l'épaule contre le montant, une cigarette qu'il oubliait d'allumer. Yuri replié sous sa capuche, comme un homme qui prie un dieu auquel il a cessé de croire. Et moi au milieu, dans le bleu de l'ombre. Ce bleu qui n'existe que là où les gens vivent à la lueur d'un écran.
 
+Nous trois dans la même pièce, c'était déjà contre nature. Les gens comme nous ne se réunissent pas. On vit à des frontières différentes, on s'aime par câble, on se croise une fois l'an sous de faux noms. Mais quand la traque était tombée sur Marseille, ils étaient venus. Basti, d'ici, de ses propres rues. Yuri, de Kyiv — lui qui ne prenait jamais l'avion sous son vrai visage, qui ne m'avait jamais laissé le voir autrement qu'à travers un écran. Il avait traversé pour ça. Et il gardait sa capuche baissée comme on garde une dernière porte fermée. Ifeoma tenait les lumières depuis Lagos. Noa veillait la ligne depuis Tel-Aviv. La famille s'était rassemblée aussi près qu'elle savait le faire.
+
 Toute la nuit se rétrécissait jusqu'à une seule ligne lumineuse. Et un plan auquel il manquait encore une chose pour naître.
 
 Du temps.
