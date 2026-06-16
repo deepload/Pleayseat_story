@@ -4,7 +4,7 @@ Je n'avais pas dormi depuis trois jours. Je ne m'étais jamais senti aussi évei
 
 Il existe une fatigue qui dépasse la fatigue. De l'autre côté, on trouve quelque chose de presque sacré. Le monde se resserre. Le bruit s'éteint. On oublie qu'on a un corps. Il ne reste que le travail, et la raison du travail.
 
-Les moines cherchent ça toute leur vie. Les gens comme moi le trouvent à trois heures du matin, dans la lumière bleue d'un écran. Le reste du monde dort. Seuls veillent ceux qui, comme nous, habitent les recoins oubliés du réseau. Ces messageries qu'aucun moteur n'indexe. Ces forums sans enseigne où l'on entre sur invitation. Ce grand murmure de gens qui parlent bas sous de faux noms et se reconnaissent à trois mots.
+Les moines cherchent ça toute leur vie. Les gens comme moi le trouvent à trois heures du matin, dans la lumière bleue d'un écran. Le reste du monde dort. Seuls veillent ceux qui, comme nous, habitent les recoins oubliés du réseau.
 
 Moi, je l'ai trouvé comme je trouve tout. Trop tard. Trop fort. Avec un prénom de femme qui me brûlait un trou au milieu du ventre.
 
@@ -86,7 +86,7 @@ Pendant dix ans, j'ai forcé des choses.
 
 Des portes qui n'étaient pas les miennes. Des murs qu'on croyait solides. J'étais l'homme qu'on engageait quand la réponse officielle était *impossible*, et qu'on avait assez d'argent, ou assez de chagrin, pour ne pas être d'accord.
 
-Dans ces arrière-salles du réseau, des gens sans visage chuchotent sous de faux noms. On y vend et on y achète des secrets volés comme on troque des cartes au marché noir. Chacun se méfie jusqu'à son propre reflet. Là, mon nom — celui que je portais alors, le seul que personne ne connaîtra avant longtemps — se prononçait à voix basse. Avec ce mélange de révérence et de peur qu'on réserve aux légendes et aux maladies.
+Dans ces arrière-salles du réseau, mon nom — celui que je portais alors, le seul que personne ne connaîtra avant longtemps — se prononçait à voix basse. Avec ce mélange de révérence et de peur qu'on réserve aux légendes et aux maladies.
 
 Je me disais que j'avais des principes. Parfois c'était vrai. Parfois le principe n'était qu'un mot plus joli pour ce que le travail me faisait ressentir. Comme un dieu. Comme un fantôme. Comme l'homme le plus obstiné et le plus seul de chaque pièce où je ne pouvais pas être vu entrer.
 

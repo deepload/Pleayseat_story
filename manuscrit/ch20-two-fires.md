@@ -14,7 +14,7 @@ Ce n'était pas Clara qui courait.
 
 C'était son cœur qu'on *transportait.*
 
-Et à cet instant, je compris l'autre chose. Celle que je refusais de voir. Le Chirurgien ne fuyait plus. Il me *dirigeait.* Il tenait le pouls de Clara au bout d'un fil, comme un leurre sur l'eau. Et il guettait de quel côté la bête affamée allait sauter. Vieux réflexe de notre monde, celui des messageries cachées où chacun se planque derrière un faux nom : on n'attrape pas un homme comme moi en l'effrayant. On l'attrape en lui montrant ce qu'il brûle de voir.
+Et à cet instant, je compris l'autre chose. Celle que je refusais de voir. Le Chirurgien ne fuyait plus. Il me *dirigeait.* Il tenait le pouls de Clara au bout d'un fil, comme un leurre sur l'eau. Et il guettait de quel côté la bête affamée allait sauter. Vieux réflexe de notre monde : on n'attrape pas un homme comme moi en l'effrayant. On l'attrape en lui montrant ce qu'il brûle de voir.
 
 Alors je m'imposai l'insupportable.
 
@@ -44,7 +44,7 @@ Il portait la preuve qu'on ne pourrait pas contester, scellée fil après fil. I
 
 Arrache la colonne, et le corps s'effondre.
 
-Et quelqu'un, quelque part dans le noir, derrière des faux noms jetés après usage, avait empoigné la colonne. Et commencé, très doucement, à la disjoindre.
+Et quelqu'un, quelque part dans le noir, avait empoigné la colonne. Et commencé, très doucement, à la disjoindre.
 
 Le Chirurgien. Bien sûr. Le signal sur la carte n'était pas le piège. Le signal était la *diversion.* Il avait allumé un feu devant la maison pour m'envoyer chercher de l'eau. Et pendant que je courais, il était passé par-derrière brûler ce qui comptait.
 

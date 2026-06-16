@@ -12,7 +12,7 @@ Une nuit entière à sceller la vérité. Fil après fil. Lentement, saintement,
 
 J'avais fabriqué une clé parfaite. Et aucune serrure n'en voulait.
 
-L'appartement de Bruxelles avait l'odeur de ces nuits-là. Café froid dans trois tasses. La chaleur sèche des machines qui tournent trop longtemps. Cette odeur tiède d'électronique et de poussière brûlée qu'aucun d'entre nous n'oublie.
+L'appartement de Bruxelles avait l'odeur de ces nuits-là. La chaleur sèche des machines qui tournent trop longtemps. Cette odeur tiède d'électronique et de poussière brûlée qu'aucun d'entre nous n'oublie.
 
 La seule lumière venait des écrans. C'est toujours comme ça, dans mon monde. Celui des gens qui travaillent quand les autres dorment. On apprend à aimer cette lumière. Bleue, froide, fidèle. La seule qui ne juge personne.
 
@@ -56,7 +56,7 @@ Et je lui avais dit, en mots simples, seul, en me sentant idiot : *Si elle est v
 
 J'avais demandé une preuve de vie. Pas un lieu. Pas un sauvetage. Juste ça. La seule chose. La chose sous toutes les autres. *Respire-t-elle encore.*
 
-Puis je l'avais laissée filer. On ne peut pas veiller une chose pareille, on en devient fou. Je m'étais enseveli dans les routes, l'argent, les douze visages, la porte pourrie. Dans les forums où l'on chuchote les noms qu'on n'écrit jamais en clair. Dans les canaux du darknet où les convois d'aide se vendent comme du fret et les enfants comme une ligne sur une facture.
+Puis je l'avais laissée filer. On ne peut pas veiller une chose pareille, on en devient fou. Je m'étais enseveli dans les routes, l'argent, les douze visages, la porte pourrie. Dans les canaux du darknet où les convois d'aide se vendent comme du fret et les enfants comme une ligne sur une facture.
 
 Et sous tout cela, le système avait continué d'écouter. Patiemment. Sans espoir, parce qu'il n'en a pas. Sans désespoir, pour la même raison. Écoutant le silence où Clara aurait dû être. Comme un stéthoscope posé sur une poitrine. Attendant.
 
@@ -106,7 +106,7 @@ Et si je bâtissais un monument. Et si toute cette machine frénétique — six 
 
 Et si Clara était morte depuis la deuxième nuit. Et si je n'étais qu'un homme tenant une longue conversation avec un fantôme.
 
-Je ne me l'étais pas autorisé à voix haute. Pas à Ifeoma, qui veillait sur mon infrastructure depuis Lagos et m'écrivait à trois heures du matin *dors, idiot*, en sachant que je ne dormirais pas. Pas à Yuri, à Kyiv, qui voit des ennemis dans chaque ombre et a presque toujours raison. Pas même au noir.
+Je ne me l'étais pas autorisé à voix haute. Pas à Ifeoma, qui m'écrivait à trois heures du matin *dors, idiot*, en sachant que je ne dormirais pas. Pas à Yuri, à Kyiv. Pas même au noir.
 
 Parce que le dire, c'était le rendre possible. Et je ne pouvais pas. J'avais besoin qu'elle soit vivante comme un noyé a besoin du prochain centimètre d'air. Alors j'avais refusé. J'avais empilé le refus jour après jour jusqu'à ce qu'il devienne un mur. Et j'avais bâti, bâti, bâti par-dessus. Sans jamais regarder en bas.
 
@@ -120,7 +120,7 @@ Je voulais seulement être près d'elle.
 
 Basti a appelé.
 
-J'avais oublié que le téléphone était dans ma main. Basti. Mon serrurier, mon homme à tout faire. Le contrebandier passé du bon côté, qui s'occupe des bottes, des portes, des morceaux de ce monde qu'on peut toucher. Il était déjà à Marseille. Déjà en position. Déjà au travail de terrain, patient et laid, pendant que je rendais la vérité lourde à Bruxelles.
+J'avais oublié que le téléphone était dans ma main. Basti. Mon homme à tout faire, qui s'occupe des bottes, des portes, des morceaux de ce monde qu'on peut toucher. Il était déjà à Marseille. Déjà en position. Déjà au travail de terrain, patient et laid, pendant que je rendais la vérité lourde à Bruxelles.
 
 Dans notre famille, on se partage le réel et l'invisible. Moi derrière les écrans. Lui dans les ruelles. Entre nous, une ligne chiffrée et vingt ans de dettes qu'aucun de nous ne compte plus. Il a une voix de gravier roulé dans une boîte de fer. Et derrière, un cœur qu'il cache très mal.
 
@@ -162,7 +162,7 @@ J'ai laissé tomber le mur que j'avais bâti toute la semaine. Le mur par-dessus
 
 J'ai pensé à la première fois où j'avais senti ce cœur.
 
-Las Vegas. Il y a deux ans et demi. Une chambre d'hôtel, la climatisation qui rugissait, la ville jetant ses couleurs contre les rideaux. On s'était rencontrés deux jours plus tôt, dans le grand rassemblement des gens comme nous. Cette convention qui, une fois l'an, vide les forums du monde dans un même hôtel-casino du désert. Des milliers d'inconnus sous les néons. Des badges aux faux noms. Des salles obscures où l'on monte sur scène montrer la faille qu'on a trouvée dans une serrure que le monde croyait inviolable. Où l'on reconnaît une légende à la façon dont les autres baissent la voix quand elle entre.
+Las Vegas. Il y a deux ans et demi. Une chambre d'hôtel, la climatisation qui rugissait, la ville jetant ses couleurs contre les rideaux. On s'était rencontrés deux jours plus tôt, dans le grand rassemblement des gens comme nous.
 
 Elle ne savait pas qui j'étais. C'est ce qui m'a achevé.
 

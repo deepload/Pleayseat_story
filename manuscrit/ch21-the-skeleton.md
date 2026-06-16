@@ -8,7 +8,7 @@ La seule façon de ne pas devenir fou, c'était d'apprendre par cœur le bâtime
 
 Alors c'est ce que j'ai fait. La nuit avançait. Mon ami tenait sa position dans une ville que j'avais fuie. Une position que j'avais choisie pour lui, au mépris de sa vie. Et moi, j'étais à Bruxelles, seul, dans la lumière de l'écran. J'apprenais les os de l'endroit qui retenait Clara.
 
-Le café avait refroidi depuis longtemps. Je n'allumais pas les lampes. Les gens comme moi n'allument pas les lampes. On vit à la lueur bleue, dans le ronronnement des machines. On habite les heures que le reste du monde abandonne. Celles où personne ne regarde. Celles où tout se fait vraiment.
+Je n'allumais pas les lampes. On vit à la lueur bleue, dans le ronronnement des machines. On habite les heures que le reste du monde abandonne. Celles où personne ne regarde. Celles où tout se fait vraiment.
 
 Je dois être honnête sur la honte. Sinon je finirai par me croire meilleur que je ne suis. Une part de moi s'était jetée sur les plans du bâtiment comme un lâche se jette sur le plan des sorties. Pour ne pas penser à Basti. Pour me remplir la tête de couloirs plutôt que de l'image qui revenait sans cesse. Celle où j'avais troqué un morceau de ma famille contre le reste. Et le morceau, c'était lui.
 
@@ -46,7 +46,7 @@ Un hôpital surtout. C'est l'une des choses les plus documentées que fabriquent
 
 Le système est allé le chercher. Tout. Il a tiré les fantômes d'un hôpital mort des tiroirs oubliés du monde. Sans une goutte de sang. Il les a posés l'un sur l'autre. Jusqu'à ce que le visage aveugle de la rue de Basti devienne du verre. Et que je puisse voir au travers. Jusque dans ses côtes.
 
-Je ne dirai pas comment. Je m'étais fait cette promesse la première nuit. Je la tenais chaque nuit depuis. Les gens de mon espèce vivent et meurent par ce silence. On ne dit jamais le comment. Jamais. C'est la première règle et la dernière. Celle qui sépare ceux qui durent de ceux qui disparaissent un matin sans un adieu.
+Je ne dirai pas comment. Je m'étais fait cette promesse la première nuit. Je la tenais chaque nuit depuis. C'est la première règle et la dernière. Celle qui sépare ceux qui durent de ceux qui disparaissent un matin sans un adieu.
 
 Mais je peux dire ce que ça m'a fait. La sensation est la seule part qui m'appartienne encore.
 

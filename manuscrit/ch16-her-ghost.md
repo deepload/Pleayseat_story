@@ -4,7 +4,7 @@ Le système m'avait donné un point sur une carte. Et je n'y croyais pas.
 
 C'est la vérité. Et c'est par là qu'il faut commencer. Prétendre que je lui ai fait confiance dès la première seconde, ce serait mentir. Et je me suis promis de ne pas mentir sur la seule chose qui compte.
 
-La veille au soir, il était trois heures passées. L'heure morte. L'heure où il ne reste éveillés que les gens qui vivent dans les recoins du réseau, ceux qui veillent quand les autres dorment.
+La veille au soir, il était trois heures passées. L'heure morte. L'heure où il ne reste éveillés que ceux qui veillent quand les autres dorment.
 
 La chose que j'avais bâtie venait de finir une phrase que Clara n'avait jamais pu terminer. Elle avait épousé sa pensée et l'avait portée au-delà du silence où on l'avait réduite. Et cette fin, c'était un point sur une carte. Une rue. Une ville où j'avais juré de ne plus jamais poser le pied.
 
@@ -20,7 +20,7 @@ Alors j'ai fait la chose la plus cruelle qu'un homme plein d'espoir puisse faire
 
 J'ai d'abord appelé Yuri. Parce que Yuri n'espère jamais. Il en est incapable.
 
-Il vit dans un appartement de Kyiv qui sent le café soluble et le vieux tabac. Rideaux occultants jamais ouverts depuis les premières sirènes. Trois écrans qui ne s'éteignent pas. Une ampoule nue qui pendouille. Il traite chaque bonne nouvelle comme un couteau dont on lui cache le manche. Un ancien de l'écoute. Un homme qui a passé sa vie à intercepter le silence des autres. Paranoïaque de la plus belle façon : il a presque toujours raison.
+Il vit dans un appartement de Kyiv qui sent le café soluble et le vieux tabac. Rideaux occultants jamais ouverts depuis les premières sirènes. Trois écrans qui ne s'éteignent pas. Une ampoule nue qui pendouille. Il traite chaque bonne nouvelle comme un couteau dont on lui cache le manche.
 
 — C'est une supposition, ai-je dit. Dis-moi que c'est une supposition.
 
@@ -72,9 +72,9 @@ Marseille.
 
 Pourquoi je m'en étais détourné, je ne le dirai pas. Pas tout. Il y a des dettes qu'on porte fermées à clé. Un homme a le droit de garder l'unique valise qu'il n'ouvre jamais.
 
-La forme suffira. J'y ai laissé quelqu'un, il y a longtemps, d'une façon dont j'ai encore honte. Du temps où je forçais les serrures du monde pour vivre. Où j'étais un nom qu'on murmurait dans les coulisses du milieu, un pseudo que les anciens prononçaient comme on évoque un mort. Le bidouilleur têtu qui trouvait toujours la porte que les autres croyaient close. Et où un sentiment pouvait dissoudre une mission, une amitié, une année de la confiance de quelqu'un — le temps que je tombe amoureux de la prochaine chose brillante.
+La forme suffira. J'y ai laissé quelqu'un, il y a longtemps, d'une façon dont j'ai encore honte. Du temps où je forçais les serrures du monde pour vivre. Le bidouilleur têtu qui trouvait toujours la porte que les autres croyaient close. Et où un sentiment pouvait dissoudre une mission, une amitié, une année de la confiance de quelqu'un — le temps que je tombe amoureux de la prochaine chose brillante.
 
-Marseille, c'est là que j'ai appris ce que je coûtais. C'est là qu'est Basti. Le serrurier. Le vieux contrebandier aux mains d'accordeur de piano, au rire qu'on entend par-dessus un moteur. Basti est la seule personne là-bas qui m'ait pardonné. Et il m'a pardonné comme on pardonne au temps qu'il fait : en continuant simplement de se tenir dehors, sous lui.
+Marseille, c'est là que j'ai appris ce que je coûtais. C'est là qu'est Basti, aux mains d'accordeur de piano, au rire qu'on entend par-dessus un moteur. Basti est la seule personne là-bas qui m'ait pardonné. Et il m'a pardonné comme on pardonne au temps qu'il fait : en continuant simplement de se tenir dehors, sous lui.
 
 Alors quand la chose a placé Clara à Marseille, elle ne s'est pas contentée de me pointer vers elle.
 
@@ -94,7 +94,7 @@ Ifeoma a décroché à la première sonnerie. Ce qui voulait dire qu'elle était
 
 — Tu as la voix. Celle d'avant que tu fasses une bêtise et que tu l'appelles de l'amour.
 
-Un fracas chez elle. Le matin de Lagos qui filtrait. Une bouilloire. Un enfant quelque part. Toute la chaude mécanique d'une vie qui tournait droit pendant que la mienne déraillait. Ifeoma fait tourner tout le monde qui est le mien. Mes machines silencieuses, dispersées sous des noms qui ne sont pas les miens, le squelette invisible de tout ce que je suis. Depuis un bureau, à huit heures d'avion. Et elle ne m'a jamais laissé lui mentir. C'est l'amitié la plus chère que je possède.
+Un fracas chez elle. Le matin de Lagos qui filtrait. Une bouilloire. Un enfant quelque part. Toute la chaude mécanique d'une vie qui tournait droit pendant que la mienne déraillait. Ifeoma fait tourner tout ce qui est le mien, depuis un bureau, à huit heures d'avion. Et elle ne m'a jamais laissé lui mentir. C'est l'amitié la plus chère que je possède.
 
 — Dis-moi ce qu'elle a trouvé.
 

@@ -18,7 +18,7 @@ J'ai connu beaucoup de mauvaises pièces dans ma vie.
 
 Le mauvais bout du canon d'hommes armés. Le mauvais bout des raisons de certaines femmes. Un jour, quarante minutes mémorables dans une chambre froide à Anvers, par un homme qui, en toute honnêteté, m'avait prévenu.
 
-J'ai vécu des années dans les interstices. Dans ces salons cachés du réseau où des gens comme moi se parlent à voix basse, derrière de faux noms. Des forums dont l'adresse change chaque mois. Qu'aucun moteur de recherche n'a jamais trouvés. Là-bas, on respire la méfiance comme un air.
+J'ai vécu des années dans les interstices, là où l'on respire la méfiance comme un air.
 
 Alors je connais cette sensation du sol qui bascule. Je sais ce que c'est. La terre qui décide, d'un coup, qu'elle n'est plus de ton côté.
 
@@ -26,7 +26,7 @@ Le rouge, c'était ça.
 
 Quelque part dans le noir, très loin et tout près à la fois, la chose que j'avais bâtie prenait feu. Mes yeux. Mes oreilles. Mon sixième sens. La chose qui écoutait le silence d'un pays entier pour y trouver son battement de cœur à elle.
 
-Pas un vrai feu. Pas de fumée dans l'appartement de Bruxelles. Seulement la pluie sur le velux. Le radiateur qui cliquetait. Et la sueur froide entre mes omoplates. Trois tasses de café froid alignées comme des soldats morts au bord du clavier.
+Pas un vrai feu. Pas de fumée dans l'appartement de Bruxelles. Seulement la pluie sur le velux. Le radiateur qui cliquetait. Et la sueur froide entre mes omoplates.
 
 Mais c'était un incendie quand même. Quelqu'un avait jeté une torche dans la maison que j'avais bâtie pour la retrouver. Et la maison hurlait.
 
@@ -100,7 +100,7 @@ Mais il y a une chose, avec un feu allumé pour distraire. Il trahit celui qui l
 
 On ne peut pas crier *regarde ailleurs* sans révéler qu'il y a quelque chose qu'on cache. On ne peut pas aveugler un homme sans se tenir dans sa lumière.
 
-Le Chirurgien avait allumé son feu pour me faire lâcher le fil. Et en l'allumant, il l'avait couvert de sa main. Cette main que j'aurais reconnue n'importe où. La manière. La signature dans le geste. L'inclinaison qu'aucun faux nom ne sait maquiller. La main que j'avais aidé à façonner dans une vie que j'avais enterrée, du temps où nous travaillions côte à côte. Deux gamins doués et perdus dans les bas-fonds du réseau.
+Le Chirurgien avait allumé son feu pour me faire lâcher le fil. Et en l'allumant, il l'avait couvert de sa main. Cette main que j'aurais reconnue n'importe où. La manière. La signature dans le geste. L'inclinaison qu'aucun faux nom ne sait maquiller. La main que j'avais aidé à façonner dans une vie que j'avais enterrée, du temps où nous travaillions côte à côte.
 
 Il était trop occupé à me faire regarder ailleurs. Il avait oublié que j'avais bâti tout ça pour me souvenir d'un contact. Chaque fois qu'il poussait le feu vers la porte de Clara, il laissait une empreinte dessus.
 
@@ -112,7 +112,7 @@ Il croyait m'aveugler. Il signait des aveux devant un témoin qui ne cligne jama
 
 Il y a eu un instant, vers la fin, où j'ai failli appeler Basti.
 
-Basti, c'est mon homme à Marseille. Serrurier aujourd'hui, contrebandier autrefois, ami toujours. Un grand ours rieur qui a ouvert plus de portes qui ne lui appartenaient pas qu'aucun honnête homme n'oserait avouer en connaître. Un de ceux qui vivent dans les interstices, eux aussi. Qui ne demandent jamais pourquoi avant de demander quand. Si quelqu'un pouvait poser le pied à terre dans la ville où elle avait disparu, d'où le feu semblait souffler, c'était lui.
+Basti, c'est mon homme à Marseille. Il ne demande jamais pourquoi avant de demander quand. Si quelqu'un pouvait poser le pied à terre dans la ville où elle avait disparu, d'où le feu semblait souffler, c'était lui.
 
 Mon pouce était déjà sur son nom. Le téléphone était chaud dans ma main.
 
@@ -132,7 +132,7 @@ Le feu était trop bon. Trop rodé. On n'apprend pas à allumer un feu pareil du
 
 Le Chirurgien ne m'avait pas trouvé cette nuit. Il était dans mes murs depuis *des années.* Patient comme la pourriture. Tapi dans mes systèmes comme un homme qui aurait gardé un double des clés après le déménagement. Le feu n'était le commencement de rien. C'était le moment où la pourriture s'était enfin mise en mouvement.
 
-Quoi que fût PHANTOM MERCY, ses racines descendaient plus profond que je n'avais osé l'imaginer. Dans des couches du réseau où la lumière n'arrive jamais. Sous les forums cachés, sous les marchés et les fichiers volés. Et j'ai eu la sensation glaciale que j'allais tirer sur un fil et ne trouver aucun fond.
+Quoi que fût PHANTOM MERCY, ses racines descendaient plus profond que je n'avais osé l'imaginer. Dans des couches du réseau où la lumière n'arrive jamais. Et j'ai eu la sensation glaciale que j'allais tirer sur un fil et ne trouver aucun fond.
 
 Mais ça, c'était une peur pour demain.
 

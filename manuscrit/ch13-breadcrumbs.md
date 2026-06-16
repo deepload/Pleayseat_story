@@ -8,7 +8,7 @@ Puis je suis resté planté devant la fenêtre, à Bruxelles, à regarder la plu
 
 On croirait qu'un avertissement pareil fait fuir un homme. Pas moi. Il m'a figé.
 
-C'était une vieille immobilité. Froide, méticuleuse. Je l'avais portée comme une seconde peau, dans la vie que j'ai enterrée. Celle qui me prenait juste avant d'entrer là où je n'avais rien à faire. Du temps où je vivais dans les interstices. Où mon nom n'était qu'un pseudo chuchoté dans des salons fermés. Des pièces sans murs, où les visages n'existent pas, où l'on ne se connaît que par des surnoms. Où je gagnais ma vie à ouvrir des portes qui n'étaient pas les miennes.
+C'était une vieille immobilité. Froide, méticuleuse. Je l'avais portée comme une seconde peau, dans la vie que j'ai enterrée. Celle qui me prenait juste avant d'entrer là où je n'avais rien à faire. Du temps où je vivais dans les interstices, où je gagnais ma vie à ouvrir des portes qui n'étaient pas les miennes.
 
 Sauf que je ne vais plus dans ces endroits-là. Je retrouve des gens. Je les ramène chez eux.
 
@@ -62,7 +62,7 @@ C'est la pire. Pire que le danger. Le danger, au moins, donne quelque chose à f
 
 Et à trois heures du matin, tout ce que j'ai fait de travers se mettait en file. Chacun passait son tour, l'un après l'autre.
 
-Trois heures du matin, c'est l'heure des gens comme moi. L'heure où le monde dort, et où nous, les autres, restons éveillés devant la lueur bleue. Le café froid au fond de la tasse. Le ronronnement des machines comme d'autres écoutent la mer.
+Trois heures du matin, c'est l'heure des gens comme moi. L'heure où le monde dort, et où nous, les autres, restons éveillés devant l'écran.
 
 J'ai pensé à Clara. Je me le suis permis une minute, ce que je ne fais presque jamais. C'est une porte que j'ai du mal à refermer.
 
@@ -114,9 +114,9 @@ Je l'ai dit à voix haute, à la pièce vide, comme on prononce un nom qu'on red
 
 Je suis resté très immobile. J'ai senti le sol de mon ancienne vie s'ouvrir sous la nouvelle.
 
-Bien sûr que c'était Marseille. Ça allait toujours être Marseille. La route de son dernier rapport passait par là. L'homme que j'avais enterré — le Chirurgien, mon miroir noir, le frère que j'avais aidé à façonner, l'un des nôtres avant de devenir l'un des leurs — il avait fait ses armes là-bas, comme moi.
+Bien sûr que c'était Marseille. Ça allait toujours être Marseille. La route de son dernier rapport passait par là. L'homme que j'avais enterré — le Chirurgien, mon miroir noir — il avait fait ses armes là-bas, comme moi.
 
-Et j'avais de la famille là-bas. J'avais *Basti.* Le contrebandier devenu serrurier. Le rire comme un éboulement. L'homme qui m'avait un jour porté sur quatre rues avec deux côtes cassées, sans jamais me laisser m'excuser pour le poids.
+Et j'avais de la famille là-bas. J'avais *Basti.* Le rire comme un éboulement. L'homme qui m'avait un jour porté sur quatre rues avec deux côtes cassées, sans jamais me laisser m'excuser pour le poids.
 
 Il allait falloir appeler Basti.
 

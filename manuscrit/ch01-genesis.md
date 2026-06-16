@@ -141,17 +141,15 @@ Voici ce que personne n'a jamais compris à mon sujet. Moi compris. Avant cette 
 
 Mon défaut, c'était mon don. La même chose.
 
-J'aimais tout, jusqu'à me noyer. Mais je n'avais jamais aimé une chose qui valait la peine d'y rester. J'avais passé ma vie à tomber jusqu'au fond pour des gens qui ne valaient pas la traversée à la nage. Alors j'avais appelé ça une faiblesse. Un schéma. Une raison pour que personne ne compte sur moi.
-
-Mais ce n'est pas une faiblesse d'aimer complètement. Ça n'en est une que lorsqu'on aime quelque chose de petit.
+J'avais appelé ça une faiblesse. Un schéma. Une raison pour que personne ne compte sur moi. Mais ce n'est pas une faiblesse d'aimer complètement. Ça n'en est une que lorsqu'on aime quelque chose de trop petit pour s'y perdre.
 
 Et il n'y avait rien de petit là-dedans.
 
-Je me suis levé. Je m'en souviens. Comme un homme qui sort de l'eau. Mes mains avaient cessé de trembler. Et j'ai pensé, très clairement, d'une voix qui ne ressemblait à aucune de celles avec qui je discute d'ordinaire : *Je vais la retrouver. Même s'il me faut démonter le monde entier à mains nues.*
+Je me suis levé. Je m'en souviens. Comme un homme qui sort de l'eau. Mes mains avaient cessé de trembler. Et j'ai pensé, très clairement, d'une voix que je ne me connaissais pas : *Je vais la retrouver. Même s'il me faut démonter le monde entier à mains nues.*
 
 Alors une voix plus froide a répondu. La vieille voix. Celle de mon ancienne vie. Douce, raisonnable. *Tu sais comment. Tu as toujours su. Tu n'as rien à construire. Tu as des dettes. Tu as des fantômes. Tu connais les portes de derrière du monde et les gens qui les gardent. Tu as une douzaine de moyens sales d'en finir d'ici jeudi.*
 
-C'était vrai. J'aurais pu le faire à la manière sale. Forcer des serrures dès minuit, comme avant. Descendre dans les couloirs noirs du réseau, là où je me déplaçais autrefois en maître chez les autres. Ce dédale de canaux planqués et de forums sans nom où chacun ment sur qui il est. Atteindre les secrets bien gardés avec les vieux passe-partout. Faire fuiter ce qui devait fuir. Forcer des coffres et en déverser le contenu en pleine lumière. Blesser des gens qui méritaient de l'être. Redevenir, le temps d'une semaine de juste colère, exactement l'homme que j'avais été. Un mot lâché dans la bonne oreille, sur le bon canal, et la moitié de ma vieille famille de l'ombre se serait réveillée pour moi.
+C'était vrai. J'aurais pu le faire à la manière sale. Forcer des serrures dès minuit, comme avant. Descendre dans les couloirs noirs du réseau, là où je me déplaçais autrefois en maître chez les autres. Atteindre les secrets bien gardés avec les vieux passe-partout. Faire fuiter ce qui devait fuir. Forcer des coffres et en déverser le contenu en pleine lumière. Blesser des gens qui méritaient de l'être. Redevenir, le temps d'une semaine de juste colère, exactement l'homme que j'avais été. Un mot lâché dans la bonne oreille, sur le bon canal, et la moitié de ma vieille famille de l'ombre se serait réveillée pour moi.
 
 Et je l'aurais perdue.
 
@@ -169,7 +167,7 @@ Je n'avais pas de nom pour elle. Pas une seule ligne. J'avais un appartement gla
 
 C'était assez.
 
-J'ai débarrassé mon bureau d'un seul bras. Les papiers. Le verre mort. Les tasses de café froid à demi pleines. Tout le bazar de l'homme que j'avais joué pendant deux ans. Par terre. Je me suis assis devant les écrans. La page était vide. Le curseur clignotait dans le noir, patient. Comme un cœur qui attend une raison.
+J'ai débarrassé mon bureau d'un seul bras. Les papiers. Le verre mort. Les tasses à demi pleines. Tout le bazar de l'homme que j'avais joué pendant deux ans. Par terre. Je me suis assis devant les écrans. La page était vide. Le curseur clignotait dans le noir, patient. Comme un cœur qui attend une raison.
 
 J'ai fait craquer mes doigts. Une chose stupide, je le savais, et je l'ai faite quand même. Certains rituels servent seulement à se dire que ça a commencé.
 
@@ -179,7 +177,7 @@ Le comment n'a pas d'importance. Pas ici. Pas dans cette histoire. Elle non plus
 
 Pour la première fois de ma vie, la totalité ne me dispersait pas. Elle me visait. Tout ce que j'avais appris dans une vie passée à forcer les serrures des autres se déversait par une seule porte étroite. Et la porte portait son nom.
 
-Les heures filaient comme des minutes. La pluie cessait, reprenait, cessait. Le café refroidissait sans que j'y touche. La pièce s'emplissait de l'odeur tiède des machines qui travaillent pendant que le monde dort. Ces nuits où l'on ne lève la tête de l'écran que pour vérifier, d'un réflexe de bête traquée, que personne ne regarde par-dessus l'épaule.
+Les heures filaient comme des minutes. La pluie cessait, reprenait, cessait. La pièce s'emplissait de l'odeur tiède des machines qui ne dorment pas. Une de ces nuits où l'on ne lève la tête de l'écran que pour vérifier, par réflexe de bête traquée, que personne ne lit par-dessus l'épaule.
 
 Quelque part, une cloche d'église a sonné. Je ne l'ai pas entendue. J'ai oublié de manger. Oublié d'avoir peur. Oublié d'être l'homme qui n'achève rien. Parce que pour la première fois, il existait une chose que je serais mort plutôt que de laisser inachevée.
 

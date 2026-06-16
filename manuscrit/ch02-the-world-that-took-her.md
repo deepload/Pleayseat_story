@@ -103,7 +103,7 @@ Et j'ai commis l'erreur de me sentir, une seule chaude et stupide seconde, comme
 
 Voilà ce qu'il faut savoir sur le fait d'aimer quelqu'un de plus intelligent que soi.
 
-On passe sa vie à être l'homme le plus malin de chaque pièce. Une légende dans les forums où l'on chuchote les pseudos sans jamais voir un visage. Le nom qu'on dit tout bas et qu'on ne croise jamais. Et puis on la rencontre. Et on comprend que toute cette intelligence n'était qu'un bruit qu'on faisait pour ne pas rester seul.
+On passe sa vie à être l'homme le plus malin de chaque pièce. Et puis on la rencontre. Et on comprend que toute cette intelligence n'était qu'un bruit qu'on faisait pour ne pas rester seul.
 
 Clara me rendait silencieux. Elle regardait une chose que j'avais faite. Un travail élégant, illégal, somptueux, dont j'étais sûr qu'il l'impressionnerait. Et elle disait : « C'est beau. Mais qui ça protège ? » Et le sol se dérobait.
 
@@ -143,7 +143,7 @@ J'ai refermé le dossier appelé *Eux.* Et je lui ai fait une promesse à voix h
 
 L'outil a travaillé à travers le noir. Là où moi, je n'y arrivais pas.
 
-Quelque part avant l'aube, dans cette heure morte où le réseau lui-même retient son souffle, où les seuls éveillés sont les insomniaques de mon espèce, planqués derrière des noms inventés que personne ne relierait jamais à un visage, il a fini son premier passage. Et il avait fait la chose pour laquelle je l'avais bâti. La chose que je redoutais le plus.
+Quelque part avant l'aube, dans cette heure morte où le réseau lui-même retient son souffle, il a fini son premier passage. Et il avait fait la chose pour laquelle je l'avais bâti. La chose que je redoutais le plus.
 
 Il avait pris son cauchemar de deux ans. Et il en avait trouvé la colonne vertébrale. De tous ces convois, de tous ces passages, de tous ces millions propres et sales, il avait tiré un seul fil. Il l'avait tendu. L'artère principale. La route que les enfants empruntaient vraiment. La couture où PHANTOM MERCY faisait son œuvre pourrie.
 

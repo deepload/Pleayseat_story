@@ -12,13 +12,13 @@ Je veux être honnête sur ce que ça m'a coûté. Tout en moi voulait empoigner
 
 C'était la plus belle image que je possédais. Et c'était un appât. Je le savais. Il a quand même fallu que je m'agrippe au bord du bureau pour ne pas me lever.
 
-La pièce ne tenait qu'à la lueur des écrans. Ce bleu de nuit blanche que les miens connaissent tous. Le bleu qui remplace le sommeil. Trois tasses de café froid faisaient le siège du clavier. L'air sentait le métal chaud et la poussière brûlée sur les radiateurs.
+La pièce ne tenait qu'à la lueur des écrans. Ce bleu de nuit blanche que les miens connaissent tous. Le bleu qui remplace le sommeil. L'air sentait le métal chaud et la poussière brûlée sur les radiateurs.
 
 Parce que voici ce que ces gens avaient oublié.
 
 Avant, j'étais l'un d'eux.
 
-Je sais à quoi ressemble un piège vu de l'intérieur. J'en avais monté assez. Dans une autre vie, j'avais été un nom qu'on prononce à voix basse, un pseudo qu'on respecte et qu'on craint, une de ces légendes qu'on se raconte là où personne ne tape jamais son vrai nom.
+Je sais à quoi ressemble un piège vu de l'intérieur. J'en avais monté assez, dans une autre vie.
 
 Et le seul indice qui trahit un piège, à tous les coups, c'est qu'il est trop facile. Six jours à m'arracher chaque centimètre, chaque fragment de signal. Et soudain, du jour au lendemain, une épingle nette et lumineuse sur une carte. Un cadeau.
 
@@ -54,7 +54,7 @@ La façon sale est rapide. Elle donne le goût de la justice et ne change rien. 
 
 Clara m'avait appris ça. Avec son corps, désormais. Avec son silence.
 
-Elle me l'avait dit une fois. Près de trois ans plus tôt. À Las Vegas, dans le bar d'un hôtel-casino noyé sous les néons, qui sentait le whisky bon marché et les cigarettes des autres. C'était pendant le grand rassemblement. Cette convention où, une fois l'an, des milliers de gens comme nous descendent dans le même hôtel. Sur les scènes, des inconnus montent dévoiler les failles qu'ils ont trouvées dans les machines du monde. Dans les couloirs, tout le monde se présente sous un faux nom. C'est là que se croisent ceux qui défendent et ceux qui brisent. On n'est jamais sûr de qui est en face.
+Elle me l'avait dit une fois. Près de trois ans plus tôt. À Las Vegas, dans le bar d'un hôtel-casino noyé sous les néons, qui sentait le whisky bon marché et les cigarettes des autres. C'était pendant le grand rassemblement.
 
 On s'est reconnus au premier regard, sans échanger de vrai nom. Moi, l'homme qui testait les limites de tout, qui trouvait toujours la porte que les autres croyaient close. Elle, déjà la femme qui prouvait.
 
@@ -72,7 +72,7 @@ Mais ce qu'il m'a donné, je peux le dire. C'est ça qui compte.
 
 Il m'a donné *une preuve qui tiendrait.*
 
-Ce sont les mots les plus honnêtes dont je dispose. Chaque mensonge de ces gens était un fil. Et les fils couraient partout dans le monde. À travers des banques, des œuvres de charité, des ports, des manifestes de convois, les halls clairs d'organisations qui affichaient leurs bonnes actions sur des panneaux publicitaires. Et plus bas, à travers les recoins sans lumière du réseau. Ces marchés cachés où l'on vend ce qui ne devrait jamais s'acheter. Ces tas de fichiers volés que personne ne revendique. Ces comptes sans nom par lesquels l'argent change de robe d'un pays à l'autre.
+Ce sont les mots les plus honnêtes dont je dispose. Chaque mensonge de ces gens était un fil. Et les fils couraient partout dans le monde. À travers des banques, des œuvres de charité, des ports, des manifestes de convois, les halls clairs d'organisations qui affichaient leurs bonnes actions sur des panneaux publicitaires. Et plus bas, à travers les recoins sans lumière du réseau. Ces comptes sans nom par lesquels l'argent change de robe d'un pays à l'autre.
 
 Chacun de ces fils, je pouvais le prendre. Et à l'instant exact où je le touchais, j'y apposais une marque. Un cachet si particulier, si impossible à contrefaire, que dans des années, dans une salle d'audience, un inconnu pourrait ramasser ce fil et *savoir*, au-delà de tout doute, que personne ne l'avait touché depuis. Qu'il était aussi vrai que le jour de sa découverte. Rien ajouté. Rien retiré. Rien trafiqué dans l'ombre.
 
@@ -100,7 +100,7 @@ J'avais une chose qu'on ne pouvait pas nier.
 
 Ifeoma m'a appelé aux premières lueurs depuis Lagos. C'était le milieu de sa nuit. Elle non plus n'avait pas dormi.
 
-Ifeoma est la conscience de tout ce que je fais. Elle en tient les fondations depuis un appartement de Lagos. Un groupe électrogène qui tousse, une fille endormie dans la pièce voisine, et une foi dans le travail bien fait qui m'a sauvé la vie plus souvent que mon habileté. Elle veille sur les machines qui me tiennent debout comme d'autres veillent sur des malades. Quand je veux faire une bêtise, Ifeoma est la voix qui demande, doucement, si j'ai envisagé de m'abstenir.
+Ifeoma est la conscience de tout ce que je fais. Un groupe électrogène qui tousse, une fille endormie dans la pièce voisine, et une foi dans le travail bien fait qui m'a sauvé la vie plus souvent que mon habileté. Quand je veux faire une bêtise, Ifeoma est la voix qui demande, doucement, si j'ai envisagé de m'abstenir.
 
 « Tu as construit toute la nuit. » Pas une question. Elle voyait le travail respirer dans le noir, comme on entend qu'une maison est habitée.
 

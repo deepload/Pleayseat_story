@@ -2,7 +2,7 @@
 
 Quarante heures.
 
-C'était le chiffre, maintenant. Il clignotait dans un coin de l'écran. En rouge. À côté des canaux que je laissais tourner en sourdine, la respiration de fond de ceux qui vivent la nuit pendant que le monde dort. Des salles sans horloge. Des forums perdus où des inconnus se parlent sans jamais se voir. Des pseudos qui s'allument et s'éteignent comme des fenêtres dans une ville sans nom.
+C'était le chiffre, maintenant. Il clignotait dans un coin de l'écran. En rouge. À côté des canaux que je laissais tourner en sourdine, la respiration de fond de ceux qui vivent la nuit.
 
 Quelque part, sur les rails du pays, un long train se chargeait dans le noir. Sur le papier qui voyageait avec lui, les enfants avaient une colonne, une unité, un total. Le total faisait quarante-sept. Le train partait dans quarante heures.
 
@@ -32,7 +32,7 @@ Je n'avais pas oublié de revenir. Pas auprès d'elle. Elle était la première 
 
 Quarante heures.
 
-J'ai ouvert les fenêtres. Les vraies, celles de la pièce. Le froid de Bruxelles est entré comme une gifle. C'est ce que je voulais. La pièce sentait le café froid et la chaleur sèche des machines, cette odeur de poussière brûlée que connaissent ceux qui ont vécu près d'ordinateurs poussés à bout. Puis j'ai bâti la salle de guerre.
+J'ai ouvert les fenêtres. Les vraies, celles de la pièce. Le froid de Bruxelles est entré comme une gifle. C'est ce que je voulais. La pièce sentait la chaleur sèche des machines, cette odeur de poussière brûlée que connaissent ceux qui ont vécu près d'ordinateurs poussés à bout. Puis j'ai bâti la salle de guerre.
 
 ---
 
@@ -56,7 +56,7 @@ J'ai commencé à jouer. La pièce était noire, sauf l'écran. C'est toujours c
 
 Basti a appelé au beau milieu.
 
-Basti, c'est Marseille. Un homme qui gagnait sa vie en ouvrant les serrures des autres et qui ouvre maintenant son propre bar. Il a trouvé une façon légale de faire la seule chose pour laquelle ses mains étaient faites. C'est plus que la plupart d'entre nous. Il est bruyant. Il est grossier. Il m'aime comme s'aiment les hommes qui ont fait de la prison pour celui qui ne les a pas laissés y aller seuls. Il appelle quand il sent que j'ai des ennuis. Il le sent toujours. C'est agaçant.
+Basti, c'est Marseille. Il est bruyant. Il est grossier. Il m'aime comme s'aiment les hommes qui ont fait de la prison pour celui qui ne les a pas laissés y aller seuls. Il appelle quand il sent que j'ai des ennuis. Il le sent toujours. C'est agaçant.
 
 « Tu fais le truc », a-t-il dit.
 
@@ -74,7 +74,7 @@ Je me souvenais.
 
 Voilà. Encore. La porte. La même dont Clara m'avait averti dans un bar du désert, tout en néons et en mirages, près de trois ans plus tôt. La même que Yuri avait nommée la nuit où j'avais trouvé l'empreinte du Chirurgien dans mon propre travail d'autrefois.
 
-Toute ma famille de hasard, dispersée dans une douzaine de villes brisées. Reliée par des fils que personne ne voyait. Des numéros qui changeaient chaque mois. Des pseudos qu'on ne prononçait jamais à voix haute. Des canaux qu'on fermait au premier courant d'air. Tous à surveiller la même porte. Tous terrifiés que je sois celui qui finirait par la franchir sans revenir.
+Toute ma famille de hasard, dispersée dans une douzaine de villes brisées. Reliée par des fils que personne ne voyait. Tous à surveiller la même porte. Tous terrifiés que je sois celui qui finirait par la franchir sans revenir.
 
 « Je mettrai un réveil », ai-je dit.
 
@@ -100,7 +100,7 @@ Alors je me suis fait plus petit. Plus froid. Je me suis arraché le cœur, je l
 
 Et j'ai commencé à en gagner quelques-unes.
 
-Ça aurait dû me faire du bien. Ça ressemblait à mourir un peu. Parce que la version de moi capable de l'égaler — capable de penser net, sans freins, sans âme — cet homme-là avait été réel, autrefois. C'était l'alias que la moitié du milieu craignait sans avoir vu mon visage. Le faux nom qu'on murmurait dans les coins les plus sombres du réseau, qu'on évitait de citer de peur de l'attirer. Je l'avais mis à la retraite. Clara m'avait aidé à l'enterrer.
+Ça aurait dû me faire du bien. Ça ressemblait à mourir un peu. Parce que la version de moi capable de l'égaler — capable de penser net, sans freins, sans âme — cet homme-là avait été réel, autrefois. C'était l'alias que la moitié du milieu craignait sans avoir vu mon visage. Je l'avais mis à la retraite. Clara m'avait aidé à l'enterrer.
 
 Et me voilà, un matin gris de Bruxelles, quarante heures au compteur, en train de le déterrer. Parce qu'il était la seule arme assez tranchante pour le travail. « Maintenant tu construis », avait dit Clara. Comme une phrase dont je devais me montrer digne. Mais pour la retrouver, j'allais devoir reprendre les habits de l'homme qui forçait les serrures du monde. Une fois encore. Et prier de pouvoir les ôter ensuite.
 

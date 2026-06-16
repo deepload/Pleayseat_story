@@ -72,7 +72,7 @@ Et il y avait là une *manière*. Une signature, comme l'inclinaison d'une écri
 
 Je connaissais cette manière.
 
-J'avais aimé cette manière de l'autre côté d'un comptoir, à Las Vegas. Une odeur de bourbon renversé et de tout le reste de ma vie. C'était une convention. La grande messe annuelle de gens comme nous. Des badges en plastique, des néons, mille pseudos sous des casquettes. Et au milieu du vacarme, elle. J'avais regardé cette manière démonter le monde et le remonter plus honnête.
+J'avais aimé cette manière de l'autre côté d'un comptoir, à Las Vegas. Une odeur de bourbon renversé et de tout le reste de ma vie. Et au milieu du vacarme, elle. J'avais regardé cette manière démonter le monde et le remonter plus honnête.
 
 « N'importe qui peut te mentir », m'avait-elle dit ce premier soir, penchée assez près pour que j'oublie le nom de toutes les femmes pour qui je m'étais déjà perdu. « La preuve, elle, ne peut pas. Construis-moi quelque chose qui ne croit que la preuve. »
 
@@ -108,7 +108,7 @@ Mais elle avait laissé le sillage pour *moi*. Et j'allais le suivre, quand bien
 
 Mon téléphone a vibré contre le bureau. J'ai failli sortir de ma peau.
 
-Pas le silencieux. Pas le membre de ma famille coupé au milieu d'un mot — cette ligne-là restait close. C'était Yuri, à Kyiv. L'homme le plus paranoïaque que j'aie jamais aimé. Un ancien des services qui avait passé sa vie à écouter ce que les autres croyaient murmurer. Celui qui a presque toujours raison et qui déteste ça.
+Pas le silencieux. Pas le membre de ma famille coupé au milieu d'un mot — cette ligne-là restait close. C'était Yuri, à Kyiv. Celui qui a presque toujours raison et qui déteste ça.
 
 « quelque chose cloche dans le tableau », avait-il écrit, sans majuscule, dans le style sec d'un homme qui a dormi quatre heures en trois jours. « trop de bruit cette nuit. tout le ciel s'allume. les fuites pleuvent, les canaux débordent. quelqu'un veut que tu regardes au mauvais endroit. »
 

@@ -24,7 +24,7 @@ Il faut que je dise une chose. Une fois. Pour ne plus jamais y revenir avec le c
 
 Le monde est plein de routes que personne ne dessine sur une carte.
 
-C'est la première chose qu'on apprend, en bas, dans les interstices où nous vivons. Nous autres. Les gens disparus des annuaires. Ceux qui parlent sous des pseudos, dans des canaux planqués qu'on ne trouve jamais — qu'on découvre une fois dedans, après des jours de silence à mériter qu'une porte s'entrebâille.
+C'est la première chose qu'on apprend, en bas, dans les interstices où nous vivons.
 
 On apprend qu'il y a toujours deux cartes. Celle qu'on nous montre. Et la vraie.
 
@@ -44,7 +44,7 @@ Et il m'a montré la différence. L'écart. Le mensonge en forme de détour.
 
 Les écarts n'étaient pas aléatoires.
 
-C'est là que le café a refroidi dans ma main. Il refroidit toujours. C'est la seule constante de ma vie depuis vingt ans. Un gobelet tiédi, à moitié bu, oublié près du clavier pendant qu'autre chose brûle à l'écran.
+C'est là que le café a refroidi dans ma main.
 
 L'aléatoire aurait été innocent. Des nids-de-poule, des contrôles, un chauffeur qui aime un certain café au bord de la route. Ce que j'avais sous les yeux n'avait rien d'aléatoire. C'était un *système*. Les mêmes détours, encore et encore, année après année. Comme un sentier creusé dans un tapis par un homme qui fait six pas en attendant une nouvelle terrible.
 
@@ -88,7 +88,7 @@ Personne n'audite une association qui sauve des enfants. Ce serait obscène. Ce 
 
 Et l'argent ne passe même plus par les banques. C'est ce qu'ils croient le plus malin, ceux qui montent ces choses. Faire couler la rivière dans ces nouveaux jetons numériques. Ces monnaies qui n'appartiennent à personne et n'habitent nulle part. Un don anonyme. Une suite de signes qui passe d'une ombre à une autre. Sans nom, sans visage, sans pays. Ils croient que ça les efface.
 
-Ils oublient une chose. Rien ne s'efface vraiment, en bas. Pas dans ce sous-sol du monde où les listes volées s'échangent au compte-gouttes, de pseudo en pseudo, sur des forums sans nom. Là où la moindre habitude finit toujours par trahir l'homme qui la répète.
+Ils oublient une chose. Rien ne s'efface vraiment, en bas. Là où la moindre habitude finit toujours par trahir l'homme qui la répète.
 
 Chaque jeton laisse une queue de comète. Il faut juste quelqu'un d'assez patient pour la suivre dans le noir. D'assez insomniaque. D'assez cassé.
 
@@ -108,7 +108,7 @@ J'avais croisé la sienne il y a des années. Une autre vie. Du mauvais côté d
 
 J'ai senti l'admiration tenter de revenir. Cette chaleur professionnelle et malsaine. *Regarde ce qu'il a fait. Regarde comme ça respire.*
 
-Et j'ai entendu Yuri dans ma tête. Comme il me l'avait dit depuis Kyiv, un drone passant au-dessus de lui, sa voix grattant à travers trois relais qu'il avait empilés par habitude de fantôme. *Admire-le de l'extérieur. À la seconde où tu entres dans sa tête pour goûter l'art, tu cesses de voir les enfants.*
+Et j'ai entendu Yuri dans ma tête. Comme il me l'avait dit depuis Kyiv, sa voix grattant à travers trois relais empilés par habitude. *Admire-le de l'extérieur. À la seconde où tu entres dans sa tête pour goûter l'art, tu cesses de voir les enfants.*
 
 Alors je ne l'ai pas admiré. Je l'ai compté.
 
@@ -132,7 +132,7 @@ Douze. Je l'ai noté au dos d'une enveloppe, sous le six. Parce qu'il y a des ch
 
 J'ai appelé Basti. J'avais besoin d'entendre un être humain qui vivait là où la route s'arrête.
 
-Basti est à Marseille. Avant, il ouvrait des choses qui n'étaient pas à lui. À l'époque où nous étions plus jeunes et où les règles semblaient facultatives. Puis un jour il s'est mis à ouvrir des portes pour des gens enfermés dehors, au lieu de gens qui avaient enfermé quelque chose dedans. Il appelle ça *se ranger*. Moi j'appelle ça *forcer les mêmes serrures avec de meilleures manières*. Et nous nous aimons comme seuls deux voleurs repentis savent s'aimer.
+Basti est à Marseille. Il appelle ça *se ranger*. Moi j'appelle ça *forcer les mêmes serrures avec de meilleures manières*. Et nous nous aimons comme seuls deux voleurs repentis savent s'aimer.
 
 Il a répondu la bouche pleine. C'est comme ça que j'ai su qu'il allait bien. Le jour où Basti répondra sans manger, je me mettrai à prier.
 

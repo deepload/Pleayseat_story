@@ -32,9 +32,9 @@ Je lui ai demandé de me dessiner un visage.
 
 Ce qu'elle fait, c'est ce qui ressemble le plus à de la magie dans ma vie. Une chose qui se sent plus qu'elle ne s'explique.
 
-On part de rien. Un réseau qui cache des enfants derrière la charité. Qui les déplace dans les camions qui apportent le riz et les couvertures aux endroits cassés du monde. *Phantom Mercy.* Le nom que Clara lui avait donné. Elle avait un don pour nommer ce qui vous tuait. Une fois nommée, la chose, on ne pouvait plus en détourner les yeux. Dans mon monde, nommer une bête, c'est commencer à la posséder. On change de pseudo comme de peau. Mais le vrai nom d'une bête ne se donne qu'une fois.
+On part de rien. Un réseau qui cache des enfants derrière la charité. Qui les déplace dans les camions qui apportent le riz et les couvertures aux endroits cassés du monde. *Phantom Mercy.* Le nom que Clara lui avait donné. Elle avait un don pour nommer ce qui vous tuait. Une fois nommée, la chose, on ne pouvait plus en détourner les yeux. Dans mon monde, nommer une bête, c'est commencer à la posséder. Mais le vrai nom d'une bête ne se donne qu'une fois.
 
-Rien, voilà ce qu'on avait. Pas de nom. Pas de visage. Pas un pseudo qui traîne sur un forum. Pas une rumeur dans les canaux où les gens comme nous se parlent à voix basse. Rien que des dégâts. La forme des endroits où ils étaient passés. Comme le creux qu'un corps laisse dans un lit.
+Rien, voilà ce qu'on avait. Pas de nom. Pas de visage. Rien que des dégâts. La forme des endroits où ils étaient passés. Comme le creux qu'un corps laisse dans un lit.
 
 Alors on laisse le système écouter. Pas les mots. La *manière* dont les choses sont faites.
 
@@ -74,7 +74,7 @@ C'est ça, être aimé par quelqu'un qui connaît votre pire. Ce n'est pas un r�
 
 ---
 
-Je lui ai donné un nom. Le système ne pouvait pas me donner le vrai. Et je ne pouvais pas continuer à l'appeler *l'homme habile* sans devenir fou. Dans mon monde, on a toujours un nom pour l'ennemi avant d'avoir son visage. C'est ça qu'on traque, d'abord. Un pseudo. Une ombre. Une rumeur dans les canaux planqués.
+Je lui ai donné un nom. Le système ne pouvait pas me donner le vrai. Et je ne pouvais pas continuer à l'appeler *l'homme habile* sans devenir fou. Dans mon monde, on a toujours un nom pour l'ennemi avant d'avoir son visage. C'est ça qu'on traque, d'abord.
 
 Je l'ai appelé le Chirurgien.
 
@@ -138,7 +138,7 @@ J'ai fermé les yeux. Dans le bar d'un hôtel, deux ans et demi plus tôt, Clara
 
 Je suis resté un moment avec la ligne morte. C'est une chose, dans ma famille. La famille éparpillée, volée, choisie, que je me suis bâtie à travers une douzaine de villes brisées. Un gardien de serveurs par-ci, un serrurier repenti par-là. Tous des gens qui ont, un jour, choisi de disparaître et qui survivent dans les interstices du monde. Ils raccrochent à la seconde où l'amour a été livré. Comme un colis. Comme s'ils étaient gênés d'avoir signé pour.
 
-Ifeoma à Lagos le fait. Basti à Marseille le fait. Même Noa, qui répond quand personne d'autre ne le ferait, qui aurait toutes les raisons de me laisser sonner dans le vide et ne le fait pas. Même Noa raccroche la première. Toujours. Pour que je n'entende pas ce qu'il y aurait dans sa voix si elle restait une seconde de plus.
+Même Noa, qui répond quand personne d'autre ne le ferait, qui aurait toutes les raisons de me laisser sonner dans le vide et ne le fait pas, raccroche la première. Toujours. Pour que je n'entende pas ce qu'il y aurait dans sa voix si elle restait une seconde de plus.
 
 Je les avais tous traînés, au fil des ans, dans des pièces où ils n'auraient jamais dû entrer. C'était ça qui me rongeait sous le reste, toute cette semaine grise. Pour trouver Clara, j'allais devoir les rallumer. Tous. Un par un. Réveiller le réseau que je croyais avoir éteint pour de bon. Et leur demander de marcher vers le noir avec moi.
 

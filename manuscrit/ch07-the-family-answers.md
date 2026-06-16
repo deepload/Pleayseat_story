@@ -36,13 +36,13 @@ J'ai réveillé ma famille.
 
 Il faut que je dise qui ils sont. Vite. Parce que dans quelques minutes l'un d'eux va me briser le cœur.
 
-Il y a Ifeoma, à Lagos. C'est elle qui tient l'ossature de tout ce que j'ai construit, la salle obscure et bourdonnante qui garde les lumières allumées. La personne la plus droite que je connaisse. Elle ne m'a jamais laissé croire que j'étais un homme bien. C'est sa façon de m'aimer.
+Il y a Ifeoma, à Lagos. La personne la plus droite que je connaisse. Elle ne m'a jamais laissé croire que j'étais un homme bien. C'est sa façon de m'aimer.
 
 Quand je l'ai rencontrée, elle avait dix-neuf ans. Un pseudo de gamine en colère sur un forum où les hommes la prenaient pour une machine sans visage. Elle était dix fois plus douée qu'eux. Je lui ai donné une sortie. Elle m'a donné une conscience.
 
 Il y a Basti, à Marseille. Serrurier aujourd'hui. Contrebandier hier. Capable d'ouvrir n'importe quelle porte du vieux port en vous racontant une blague graveleuse. Un cœur de golden retriever, un casier de petit seigneur de guerre. Je lui confie ma vie. Deux fois, il me l'a sauvée. Si la traque de Clara devenait une affaire de rues et de portes verrouillées, elle deviendrait celle de Basti.
 
-Il y a Yuri, à Kyiv. Un homme qui écoute. Il entend ce que les autres ratent dans le bruit du monde, bien avant que la guerre n'oblige tout le monde à l'apprendre. Paranoïaque jusqu'à la moelle. Il change de pseudo et de ligne comme d'autres de chemise, le pouce toujours sur l'interrupteur qui efface tout. Et le pire, avec Yuri, c'est qu'il a presque toujours raison. Il ne fait confiance à personne. Sa confiance à moi m'a toujours semblé le cadeau le plus cher de la pièce.
+Il y a Yuri, à Kyiv. Un homme qui écoute — qui entend ce que les autres ratent dans le bruit du monde. Il ne fait confiance à personne. Sa confiance à moi m'a toujours semblé le cadeau le plus cher de la pièce.
 
 Et il y a Noa.
 

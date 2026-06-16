@@ -1,6 +1,6 @@
 # Chapitre 10 : Racines
 
-Il y a une question qu'on apprend à ne jamais poser. Dans la vie que je menais avant. Les nuits sans fenêtre. Les canaux planqués où l'on se parle sous des noms qu'on jette comme des allumettes. On ne la pose pas parce que la réponse est toujours pire que l'ignorance.
+Il y a une question qu'on apprend à ne jamais poser. Dans la vie que je menais avant. Les nuits sans fenêtre. On ne la pose pas parce que la réponse est toujours pire que l'ignorance.
 
 *Où est-ce que ça a commencé ?*
 
@@ -78,7 +78,7 @@ Une respiration.
 
 Sa voix changea. Devint prudente. Basse. Et je sentis la nuit changer avec elle.
 
-— Il dit qu'il y a des bruits. Sur toi. Pas ton nom — ils n'ont pas ton pseudo, ils n'ont rien. Mais sur la chose que tu as faite. Ça circule tout en bas, là où on vivait avant. Des forums cachés sans adresse. Des messageries qu'on quitte sitôt entré. Des rumeurs qui sautent d'un groupe à l'autre, sur des fils où personne ne met son nom. Ils savent que quelqu'un a construit quelque chose. Quelqu'un qui peut *voir.* Et ça leur fait peur, Delta. Le genre de peur qui pousse les gens à l'imprudence.
+— Il dit qu'il y a des bruits. Sur toi. Pas ton nom — ils n'ont pas ton pseudo, ils n'ont rien. Mais sur la chose que tu as faite. Ça circule tout en bas, là où on vivait avant. Des rumeurs qui sautent d'un groupe à l'autre, sur des fils où personne ne met son nom. Ils savent que quelqu'un a construit quelque chose. Quelqu'un qui peut *voir.* Et ça leur fait peur, Delta. Le genre de peur qui pousse les gens à l'imprudence.
 
 — Tant mieux, ai-je dit. Qu'ils aient peur.
 
@@ -134,7 +134,7 @@ La plupart ne signifient rien. Ce sont des classements. L'échafaudage gris auqu
 
 J'en ai quelques-unes. Le jour où je suis sorti de l'ancienne vie. Le jour où ma mère a cessé de reconnaître ma voix. Et une de plus. Une que je n'ai jamais dite à voix haute. À aucune âme vivante. Parce que c'était la seule chose entièrement bonne qui me soit jamais arrivée. Et que j'avais peur qu'en la disant, je laisse entrer le monde pour la gâcher.
 
-Un bar à Las Vegas qui sentait le bourbon renversé et le possible. La grande réunion annuelle des gens comme nous. Des milliers d'inconnus déversés une semaine dans un hôtel-casino du désert. Badges en plastique et faux noms. La seule semaine de l'année où l'ombre se montre le visage.
+Un bar à Las Vegas qui sentait le bourbon renversé et le possible. La grande réunion annuelle des gens comme nous.
 
 Une femme qui demandait à un inconnu de lui construire une chose qui ne croit que la preuve. La nuit où tout le fatras dispersé que j'étais s'est immobilisé pour la première fois de ma vie. Parce que quelqu'un de réel y était entré et avait coupé le bruit.
 

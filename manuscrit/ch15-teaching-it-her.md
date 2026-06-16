@@ -8,7 +8,7 @@ Pas de la monnaie. *D'elle.* On essaie de la refaire avec les morceaux qu'elle a
 
 Ça ne marche jamais. Le faux est toujours trop mince. On demande au café froid où elle est partie. Le café froid ne dit rien. C'est du café.
 
-Mais j'avais passé trente-six heures à devenir le Chirurgien. À descendre dans ses recoins du réseau, ceux qu'aucun moteur de recherche n'éclaire. Ces salons sans fenêtres où l'on n'arrive jamais avec un visage. Juste un faux nom et une réputation qu'on a mis des années à bâtir. Où l'on troque dans le noir des secrets volés comme des reliques. J'étais devenu la chose froide et sans freins qui la voulait morte. Et j'en étais ressorti exactement comme Basti l'avait promis : avec quelque chose collé sous mes semelles que je n'arrivais pas à gratter. J'avais appris à penser comme l'homme qui l'avait prise.
+Mais j'avais passé trente-six heures à devenir le Chirurgien. À descendre dans ses recoins du réseau, ceux qu'aucun moteur de recherche n'éclaire. J'étais devenu la chose froide et sans freins qui la voulait morte. Et j'en étais ressorti exactement comme Basti l'avait promis : avec quelque chose collé sous mes semelles que je n'arrivais pas à gratter. J'avais appris à penser comme l'homme qui l'avait prise.
 
 Et là, dans ces heures grises d'avant l'aube, assis dans les décombres, l'écran pour seul soleil, une pensée m'est venue. Si simple que j'ai failli rire.
 
@@ -94,13 +94,13 @@ Dieu me pardonne, ça marchait.
 
 ---
 
-Yuri a appelé à cinq heures. Bien sûr que c'était Yuri. Il dort comme dort la fumée. Il appelle toujours sur une ligne qui change de visage chaque semaine. Jamais deux fois la même. Jetée après usage comme un mégot. Il vit comme s'il avait déjà tout le monde sur le dos. Et, le connaissant, c'est peut-être le cas.
+Yuri a appelé à cinq heures. Bien sûr que c'était Yuri. Il dort comme dort la fumée. Il vit comme s'il avait déjà tout le monde sur le dos. Et, le connaissant, c'est peut-être le cas.
 
 « Tu es devenu silencieux d'une façon nouvelle, a-t-il dit. Pas de bonjour. Yuri estime que bonjour est un renseignement qu'on offre gratis à l'ennemi. Pas le silence des morts. L'autre. Le silence de la cathédrale. Qu'est-ce que tu fabriques là-dedans. »
 
 « Je lui ai appris Clara », ai-je dit.
 
-Un long silence. Au bout du fil, un briquet. Une longue expiration. Il est à Kyiv. Un appartement aux fenêtres calfeutrées de scotch, derrière une porte que trois serrures ne rassurent jamais. De toute ma famille éparpillée — ces gens que je me suis choisis aux quatre coins du monde, dans les coutures du réseau —, c'est lui qui comprend le mieux la sombre mécanique de l'amour et de la paranoïa. Parce qu'il est fait des deux.
+Un long silence. Au bout du fil, un briquet. Une longue expiration. Il est à Kyiv. Un appartement aux fenêtres calfeutrées de scotch, derrière une porte que trois serrures ne rassurent jamais. De toute ma famille, c'est lui qui comprend le mieux la sombre mécanique de l'amour et de la paranoïa. Parce qu'il est fait des deux.
 
 « Tu lui as appris *Clara* », a-t-il répété. Lentement. De la façon dont on renvoie une phrase à un homme pour qu'il entende comment elle sonne.
 

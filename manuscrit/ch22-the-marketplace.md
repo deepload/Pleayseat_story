@@ -8,7 +8,7 @@ J'étais assis dans le noir. Un appartement prêté, au-dessus d'une boulangerie
 
 Devant moi, l'écran. La seule chose vivante de la pièce. Une mare bleue qui me lavait le visage et laissait le reste dans le noir.
 
-Un café froid au fond d'un gobelet, depuis des heures. La vieille discipline qui revient toute seule. Rideaux tirés. Téléphone éteint dans une autre pièce. Deux issues repérées avant même de m'asseoir. On ne se défait jamais vraiment de cette manière de respirer.
+La vieille discipline qui revient toute seule. Rideaux tirés. Téléphone éteint dans une autre pièce. Deux issues repérées avant même de m'asseoir. On ne se défait jamais vraiment de cette manière de respirer.
 
 Un seul endroit. Une seule lueur tout en bas d'un bâtiment mort. Et elle brûlait toute la nuit.
 
@@ -46,9 +46,9 @@ Imaginez une ville qui ne s'allume qu'après minuit. Des ruelles d'écran où to
 
 J'y suis allé. Dans mon ancienne vie, j'arpentais ces rues comme un habitué. Je connaissais les étals et les receleurs. Les salons cachés derrière trois portes, où l'on n'entre que si une voix vous reconnaît. Les fichiers dérobés qu'on revendait au poids. Les hommes qui m'auraient cédé n'importe quoi, pourvu que j'aie la monnaie.
 
-Là-bas, personne n'a de visage. On a un faux nom. Un masque qu'on porte un temps et qu'on jette comme une peau morte au premier soupçon. La méfiance pour seule hygiène. Un mot de trop dans le mauvais salon, et l'on disparaît.
+Là-bas, personne n'a de visage. On a un faux nom. Un masque qu'on porte un temps et qu'on jette comme une peau morte au premier soupçon. Un mot de trop dans le mauvais salon, et l'on disparaît.
 
-Moi, à une époque, j'étais un nom qu'on murmurait sur ces fils. C'est l'arrière-boutique de la planète. La plupart des gens vivront toute leur vie à dix centimètres de sa porte sans jamais savoir qu'elle est là.
+C'est l'arrière-boutique de la planète. La plupart des gens vivront toute leur vie à dix centimètres de sa porte sans jamais savoir qu'elle est là.
 
 C'est là que le fleuve resurgissait. Au marché. Et c'est là — si je le suivais, si j'avais le cran d'y retourner — qu'il finirait par me dire la vérité.
 

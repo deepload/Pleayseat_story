@@ -27,10 +27,9 @@ J'ai travaillé.
 ---
 
 Il faut que je dise qui je suis. Au moins à voix basse, dans le noir.
-
 Je vis dans les interstices. Les gens comme moi, on ne nous voit pas dans la rue. On existe dans les marges. Des forums qui changent d'adresse chaque mois. Des canaux planqués où l'on se parle par pseudos, parce qu'un nom est une laisse.
 
-Une fois par an, pourtant, on se rassemble. Pour de vrai. Des milliers d'inconnus dans un grand hôtel-casino du désert. Badges à faux noms, yeux fiévreux. On s'assoit dans des salles surchauffées et on regarde l'un des nôtres monter sur scène. Il montre, devant tout le monde, la faille qu'il a trouvée dans une serrure que la planète croyait sûre.
+Une fois par an, on se rassemble. Pour de vrai. Des milliers d'inconnus dans un grand hôtel-casino du désert. On s'assoit dans des salles surchauffées et on regarde l'un des nôtres monter sur scène. Il montre, devant tout le monde, la faille qu'il a trouvée dans une serrure que la planète croyait sûre.
 
 On y applaudit le courage, pas le mal. On y boit trop. On y dort à peine. C'est la seule famille où je me sois reconnu.
 
@@ -100,7 +99,7 @@ Des années plus tôt, dans la vie enterrée, j'avais travaillé avec quelqu'un.
 
 Il était le meilleur que j'aie jamais vu. Meilleur que moi à la seule chose où j'étais censé être le meilleur.
 
-Moi, j'étais bruyant. Imprudent. Amoureux des applaudissements, de ces nuits de convention où l'on monte sur scène devant des milliers d'inconnus pour étaler son dernier exploit jusqu'à ce que la salle hurle.
+Moi, j'étais bruyant. Imprudent. Amoureux des applaudissements, de la scène, du dernier exploit étalé jusqu'à ce que la salle hurle.
 
 Lui était silencieux. Précis. Chirurgical. Il n'a jamais voulu de public.
 

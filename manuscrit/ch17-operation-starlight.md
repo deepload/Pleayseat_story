@@ -40,7 +40,7 @@ Elle m'avait regardé avec cette tendresse exigeante qui vous arrachait la peau.
 
 Je ne l'avais pas mérité. J'ai appelé quand même.
 
-Je les ai réveillés un par un. Toute la carte éparpillée de ma vie. Des amis que je n'avais jamais vus en chair. Connus par des noms d'emprunt, sur des messageries que personne d'autre ne sait lire. Rencontrés dans ces grands rassemblements où des milliers de gens comme nous se retrouvent une fois l'an. Sous de faux noms. Pour se montrer les serrures du monde et rire de les avoir forcées.
+Je les ai réveillés un par un. Toute la carte éparpillée de ma vie. Des amis que je n'avais jamais vus en chair, connus par des noms d'emprunt, sur des messageries que personne d'autre ne sait lire.
 
 Et je leur ai dit la vérité. Ce que je ne fais presque jamais. Que je l'avais retrouvée. Qu'elle était retenue dans un bâtiment mort, dans une ville dangereuse. Et que je n'avais aucune idée de la façon de l'en sortir sans mettre en terre tous ceux que j'aimais.
 
@@ -118,7 +118,7 @@ Personne ne l'a dit. Personne n'avait à le dire.
 
 Depuis le premier jour, il était le troisième à chaque table. La chaise vide. Le courant froid. La raison pour laquelle j'avais déterré l'homme que j'avais été. Mon miroir noir.
 
-Un fantôme de mon ancienne vie. L'époque où je crochetais les coffres du monde pour de l'argent et pour le frisson. Où j'ouvrais ce que les autres croyaient clos. Il avait reconnu ma manière de faire comme on reconnaît une vieille écriture. Un nom d'emprunt que j'avais laissé traîner, des années plus tôt, sur un de ces forums morts depuis. La répétition me l'avait dit avec une certitude écœurante. Il avait cessé de chasser les enfants. Il me chassait, moi.
+Un fantôme de mon ancienne vie. Il avait reconnu ma manière de faire comme on reconnaît une vieille écriture. Un nom d'emprunt que j'avais laissé traîner, des années plus tôt, sur un de ces forums morts depuis. La répétition me l'avait dit avec une certitude écœurante. Il avait cessé de chasser les enfants. Il me chassait, moi.
 
 — Il t'attend, a dit Yuri. J'en mettrais ma vie. Ce que, te connaissant, je fais.
 

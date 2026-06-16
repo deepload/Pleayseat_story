@@ -8,7 +8,7 @@ Trois jours. Soixante-douze heures plus tôt, pendant que je jouais à la guerre
 
 Pas un souvenir. Pas une piste. Pas un battement de cœur que je m'étais forcé à sentir encore parce que j'en avais besoin. Vivante. Dans un corps. Respirant le même air que moi, trois jours plus tôt. Assez près d'un objectif pour qu'il la prenne en photo.
 
-Autour de moi, la pièce baignait dans la seule lumière que je connaisse vraiment. Celle de l'écran. Bleue. Sans pitié. Un gobelet de café froid montait la garde près du clavier, bu à moitié, oublié comme on oublie tout ce qui n'est pas elle. Et sous le plancher, le souffle bas des machines. Ce ronron de serveurs qui est, pour les gens comme moi, le bruit que fait le silence.
+Autour de moi, la pièce baignait dans la seule lumière que je connaisse vraiment. Celle de l'écran. Bleue. Sans pitié. Et sous le plancher, le souffle bas des machines. Ce ronron de serveurs qui est, pour les gens comme moi, le bruit que fait le silence.
 
 Je traquais un fantôme depuis si longtemps que j'avais presque oublié qu'elle était une femme. La photo me la rendait. Son épaule. Sa façon de se tenir, même là — menton haut, dos droit, cette insolence épuisée dont j'étais tombé amoureux par-dessus une table de cartes, dans un désert, deux ans et demi plus tôt.
 
@@ -64,7 +64,7 @@ Je n'en avais pas envie.
 
 Et il faut le dire, à quel point. Parce que ce que j'ai fait ensuite fut la chose la plus courageuse et la plus lâche de ma vie. Les deux à la fois. La seule forme honnête de courage.
 
-La part lâche : j'ai failli renoncer. « Coïncidence », ai-je dit à la pièce vide, à l'écran, au café froid. « Le monde est petit. La route passe par cette ville. Tous ceux qui travaillent la route finissent dans ce cadre. Ça ne veut rien dire. Tu es fatigué. Tu vois le Chirurgien dans chaque ombre. Va dormir. Au réveil, ce sera un autre visage. »
+La part lâche : j'ai failli renoncer. « Coïncidence », ai-je dit à la pièce vide, à l'écran. « Le monde est petit. La route passe par cette ville. Tous ceux qui travaillent la route finissent dans ce cadre. Ça ne veut rien dire. Tu es fatigué. Tu vois le Chirurgien dans chaque ombre. Va dormir. Au réveil, ce sera un autre visage. »
 
 Je me suis même à moitié levé. Pour aller ne pas dormir sur le canapé. Pour que ça attende le matin. Pour accorder à l'homme derrière son épaule la seule chose qu'il me restât à offrir : le doute.
 

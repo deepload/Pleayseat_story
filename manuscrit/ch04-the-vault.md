@@ -8,7 +8,7 @@ J'aurais dû le traquer tout de suite. N'importe quel hacker sensé l'aurait fai
 
 Je n'ai pas bougé.
 
-Je suis resté dans le noir de l'appartement bruxellois, le visage bleui par l'écran. Un café refroidissait à mon coude. Le troisième de la nuit. Ou le quatrième. On arrête de compter.
+Je suis resté dans le noir de l'appartement bruxellois, le visage bleui par l'écran.
 
 Et j'ai fait ce que j'ai toujours fait. J'ai pensé à elle.
 
@@ -24,7 +24,7 @@ Clara l'aurait compris avant moi. Clara l'avait compris des années avant que j'
 
 Il faut que je dise qui était Clara. Et ce qu'était la preuve pour elle.
 
-La première fois que je l'ai vue en colère — vraiment en colère, de cette colère qui se tait au lieu de monter — c'était dans un bar d'hôtel-casino, à Las Vegas, sous la chaleur d'août 2023. La grande convention annuelle des gens comme nous. Des milliers de bricoleurs venus du monde entier, badges sous de faux noms, qui montaient sur scène pour révéler la faille trouvée dans une serrure que tout le monde croyait sûre.
+La première fois que je l'ai vue en colère — vraiment en colère, de cette colère qui se tait au lieu de monter — c'était dans un bar d'hôtel-casino, à Las Vegas, sous la chaleur d'août 2023. La grande convention annuelle des gens comme nous.
 
 Trois jours que je l'avais rencontrée là. J'étais déjà perdu et je faisais semblant de ne pas l'être.
 
@@ -86,7 +86,7 @@ Je le sais, maintenant.
 
 Le courant d'air du guetteur traversait encore les murs quand j'ai commencé.
 
-Le comment n'a jamais été l'essentiel. Le comment, ce n'étaient que mes mains. Elles couraient sur le clavier, quelque part sous la pensée, dans cet état que les gens de mon espèce appellent *le tunnel*. La nuit qui se replie. L'écran qui devient le seul soleil. Le monde réduit au bourdonnement des ventilateurs et à la chaleur sèche des machines. Les longues nuits dans les forums où l'on n'a jamais de visage. Seulement un pseudo et une paranoïa qui ne dort jamais.
+Le comment n'a jamais été l'essentiel. Le comment, ce n'étaient que mes mains. Elles couraient sur le clavier, quelque part sous la pensée, dans cet état que les gens de mon espèce appellent *le tunnel*. La nuit qui se replie. L'écran qui devient le seul soleil. Le monde réduit au bourdonnement des ventilateurs et à la chaleur sèche des machines.
 
 Ce qui compte, c'est ce que c'*était*.
 
